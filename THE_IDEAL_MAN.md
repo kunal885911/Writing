@@ -321,305 +321,444 @@ And one of them knew his secret.
 
 ### Part I: Heathrow
 
-The flight landed at 6:47 AM London time. Arjun hadn't slept.
+The flight landed at 6:47 AM. Arjun's mouth tasted like recycled air and bad coffee.
 
-Eleven hours in economy class, wedged between a snoring businessman and a teenager watching action movies without headphones. He'd spent the time staring at the seat back in front of him, running through scenarios.
+Eleven hours in economy. The man beside him had snored through turbulence. The teenager on his other side had watched the same explosion scene fourteen times, volume bleeding through cheap headphones.
 
-Who was V?
+Arjun had spent the time making a list.
 
-Someone from Kapoor & Associates. Had to be. No one else knew about Mehta Tower. But who? And why surface now, after four years of silence?
+People who knew about Mehta Tower:
 
-He collected his single bag from the carousel and walked into the arrivals hall. A woman in a black suit held a sign: WORDCRAFT FINALISTS.
+1. Kapoor
+2. The site engineer (dead, heart attack, 2022)
+3. Priya
+4. Himself
 
-Three people already stood near her.
+Four people. One dead. Kapoor had too much to lose. That left Priya.
 
-Arjun approached slowly, studying each face.
+Or someone Priya had told.
 
-The first was a young man, barely twenty, with the kind of perfect bone structure that made people assume he was stupid. He wore a vintage leather jacket and typed furiously on his phone, not looking up.
+He grabbed his bag from the carousel, the rubber handle sticky from a thousand other hands, and walked into the arrivals hall. The air was different here. Damper. A faint smell of floor polish and jet fuel.
 
-The second was a woman in her late sixties, silver hair cropped short, posture military-straight. She leaned on a wooden cane carved with symbols Arjun didn't recognize. Her eyes tracked everything.
+A woman in a black suit held a sign: WORDCRAFT FINALISTS.
 
-The third made Arjun's stomach drop.
+Three people stood near her.
+
+Arjun studied each face as he approached.
+
+The first: a young man, barely twenty, cheekbones sharp enough to cut glass. Vintage leather jacket. Thumbs moving across his phone like he was defusing a bomb.
+
+The second: a woman in her late sixties, silver hair cropped military-short. She gripped a wooden cane carved with symbols. Her eyes moved constantly, cataloging threats.
+
+The third made his throat close.
 
 Priya's younger sister. Vidya Sharma.
 
-She saw him at the same moment. Her expression flickered, something between surprise and satisfaction, before settling into a polite mask.
+Their eyes met. Her mouth twitched, something between surprise and satisfaction, before smoothing into politeness.
 
-"Arjun," she said. "What a coincidence."
+"Arjun," she said. "Small world."
 
-It wasn't a coincidence. He knew it. She knew he knew it.
+He made a decision. Right there, in the fluorescent buzz of Heathrow arrivals.
 
-V.
+He wouldn't wait for V to make the next move. He'd find out who was playing this game before the game played him.
 
-Vidya.
+"Vidya." He kept his voice neutral. "We should talk. Tonight."
 
-"Small world," he managed.
+Her eyes narrowed slightly. "Should we?"
 
-The woman with the sign checked her clipboard. "We're waiting for one more. The car leaves in fifteen minutes."
+"We should."
 
 
 ### Part II: The Prodigy
 
-The young man's name was Ravi Anand. Twenty-one years old. First novel written at sixteen, rejected by forty-seven publishers. Second novel written at nineteen, currently a finalist for the most prestigious literary prize in the English-speaking world.
+The young man's name was Ravi Anand. Twenty-one. First novel at sixteen, forty-seven rejections. Second novel at nineteen, now a finalist for the biggest literary prize in the English-speaking world.
 
-He finally looked up from his phone when the car started moving.
+The car smelled like leather and someone's aggressive cologne. Ravi finally looked up from his phone as they merged onto the M4.
 
-"You're the architect," he said to Arjun. "I read about you. The guy who quit his career to write a book."
+"You're the architect," he said to Arjun. "Quit your career. Bold move."
 
-"That's one way to describe it."
+"Or stupid."
 
-"Brave or stupid. Same difference, right?" Ravi grinned. It was the kind of grin that got away with things. "I'm the opposite. Never had a real job. Never wanted one. Just words."
+"Same thing." Ravi's grin was the kind that had never faced consequences. "I've never had a real job. Don't plan to start."
 
-"Must be nice," the older woman said dryly. "Some of us had to survive between sentences."
+"Must be nice," the older woman said. Her voice was dry as old paper.
 
-Ravi shrugged. "My parents are rich. I didn't choose that. But I chose to use the freedom it gave me. Seems smarter than pretending to be broke for authenticity points."
+"My parents are rich. Didn't choose it. Did choose to use it." He shrugged. "Beats pretending poverty is a virtue."
 
-The car went quiet.
+Silence. Rain began to fleck the windows.
 
-Arjun decided he didn't like Ravi Anand. But he also couldn't argue with him.
+Arjun watched Vidya's reflection in the glass. She sat perfectly still, hands folded, face blank.
+
+He pulled out his phone and typed a note: *Ask her about the Bloomsbury flat. See if she flinches.*
+
+The Bloomsbury flat was where he and Priya had spent their first anniversary. A detail only someone close to Priya would know.
 
 
 ### Part III: The Professor
 
-The older woman was Dr. Nandini Iyer. Sixty-eight years old. Former chair of English Literature at Delhi University, until a scandal three years ago ended her academic career.
+Dr. Nandini Iyer. Sixty-eight. Former chair of English Literature at Delhi University until something ended her career three years ago.
 
-She didn't explain the scandal. No one asked.
+"Thirty years of scholarship," she said, watching rain streak the windows. "They'll remember me for one thing."
 
-"Thirty years of scholarship," she said as London slid past the windows. "Hundreds of papers. Thousands of students. And they'll remember me for one mistake."
+"What thing?" Ravi asked.
 
-"What mistake?" Ravi asked.
+"Telling the truth about a powerful man." She turned. Her eyes were the color of weathered stone. "In academia, that's suicide."
 
-Dr. Iyer smiled, thin and cold. "The truth. I told the truth about the wrong person at the wrong time. In academia, that's unforgivable."
+"So you wrote fiction instead."
 
-"So you wrote a novel instead?"
+"I wrote what happened. Changed the names. Let them prove it." She smiled, thin as a knife edge. "They can't. That's the beauty of fiction."
 
-"I wrote what I should have written thirty years ago. A story about a woman who destroys her life by refusing to lie." She turned to look out the window. "Turns out I had more material than I expected."
+Arjun filed this away. Dr. Iyer understood leverage. Understood how stories could be weapons.
 
-Arjun watched Vidya from the corner of his eye. She sat perfectly still, hands folded in her lap, face revealing nothing.
+The car turned onto a street lined with white Georgian townhouses. They stopped at one with black columns and a brass lion knocker.
 
-She hadn't spoken since the airport.
+"Residence," the driver announced.
+
+Inside: marble floors veined with gray. Oil paintings of people who'd been dead for centuries. A chandelier that caught the weak London light and multiplied it.
+
+And in the foyer, the fifth finalist.
+
+She sat in a wheelchair. Twenty-five, maybe. Thin in a way that suggested treatment, not choice. Her skin had a paper quality. But her eyes were predator-bright.
+
+"Maya Chen," she said. "Sorry I couldn't make the airport. Some days the body doesn't cooperate."
+
+"What's wrong with it?" Ravi asked.
+
+Arjun winced at the bluntness.
+
+"Lymphoma. Stage four." Maya said it like reporting weather. "Wrote my book during chemo. Turns out deadlines hit different when they're literal."
+
+The silence had weight.
+
+"Well," Dr. Iyer said finally, "at least one of us has perspective."
 
 
-### Part IV: The Fifth
+### Part IV: The First Move
 
-The car stopped at a townhouse in Kensington. Georgian architecture, white columns, black door with a brass knocker shaped like a lion's head.
+Arjun didn't wait for dinner.
 
-"This is the residence," the driver announced. "Ms. Ashworth will meet you inside."
+While the others settled into their rooms, he found the library on the second floor. Walls of books. Smell of old paper and lemon polish. A desktop computer in the corner, probably for guests.
 
-They filed out. A butler, actual butler, opened the door before anyone could knock.
+He typed: *Virginia Ashworth 1987*
 
-Inside: marble floors, oil paintings, a chandelier that probably cost more than Arjun's entire failed career.
+The first result: a newspaper archive. Headline from The Guardian, March 1987:
 
-And in the foyer, waiting in a wheelchair, the fifth finalist.
+*LITERARY AGENT ACCUSED OF MANUSCRIPT THEFT*
 
-She was young, maybe twenty-five, with the kind of thinness that suggested illness rather than fashion. Her skin had the translucent quality of someone who spent too much time indoors. But her eyes were sharp, almost aggressive in their intensity.
+*Virginia Ashworth, rising figure in London publishing, faces allegations from Indian author Vikram Sengupta that she stole his unpublished novel and sold it under a pseudonym...*
 
-"Maya Chen," she said. "Sorry I couldn't meet you at the airport. Travel days are hard."
+The article was behind a paywall. Arjun photographed the headline.
 
-"Hard how?" Ravi asked.
+Vikram Sengupta. V.S.
 
-"I'm dying." She said it casually, the way someone might mention a mild allergy. "Lymphoma. Stage four. Wrote my book during chemo. It's about a woman who runs out of time but keeps running anyway."
+He searched the name. Found an obituary from 2019. Sengupta had died in Mumbai, aged seventy-one. Unmarried. No children listed.
 
-Silence.
+But there was a surviving sister: Kamala Sengupta-Iyer.
 
-"Well," Dr. Iyer said finally, "that certainly raises the stakes."
+Iyer.
+
+He looked up Dr. Nandini Iyer's biographical information.
+
+Born: Nandini Sengupta.
+
+Married name: Iyer.
+
+The professor's brother had accused Virginia Ashworth of theft thirty-nine years ago. And now his sister was a finalist in Ashworth's competition.
+
+This wasn't about him. This wasn't about Mehta Tower.
+
+This was something older. Something between families.
+
+And he'd walked straight into the middle of it.
 
 
 ### Part V: Dinner
 
-Virginia Ashworth was seventy-three years old and looked fifty. She moved through the dining room like she owned not just this house but the entire concept of literature itself.
+The dining room smelled of roasted lamb and old money.
 
-"Five finalists," she said, taking her seat at the head of the table. "Five very different books. Five very different people. This week, you'll get to know each other. You'll attend events. You'll give readings. And at the end, one of you will win the WordCraft Discovery Prize."
+Virginia Ashworth sat at the head of the table. Seventy-three and dressed like fifty. She moved with the confidence of someone who'd never been told no.
 
-"What happens to the other four?" Ravi asked.
+"Five finalists," she said. "Five remarkable books. This week, you'll read together, talk together, compete together. At the end, one wins."
 
-"They go home knowing they were good enough to be here. That's not nothing."
+"And the others?" Ravi asked.
 
-The food arrived. Arjun couldn't taste any of it.
+"Go home knowing they were good enough to be here."
 
-Vidya sat directly across from him. She ate delicately, precisely, never looking his direction. But he could feel her awareness of him like a low-frequency hum.
+Arjun watched Dr. Iyer's face when Ashworth spoke. Nothing. Perfect control.
 
-After the main course, Maya Chen leaned toward him.
+The lamb was excellent. He barely tasted it.
 
-"You keep staring at her," she said quietly. "The quiet one. History?"
+After the main course, he leaned toward Maya.
 
-"Her sister was my fiancée."
+"Question," he said quietly.
 
-"Was?"
+"Dying girl wisdom? My specialty."
 
-"She left when I quit my job."
+"Dr. Iyer. What's your read?"
 
-Maya nodded slowly. "And now you're both finalists. The universe has a sick sense of humor."
+Maya glanced at the professor, then back at Arjun. "Dangerous. The quiet ones who've lost everything always are." She paused. "Why?"
 
-"I don't believe in the universe having a sense of anything."
+"Just curious."
 
-"Neither do I. That's what makes it funny."
+"No you're not." Maya's eyes were too sharp for her failing body. "You're investigating something. I recognize the look. I spent six months researching my own diagnosis before the doctors would admit how bad it was."
+
+Arjun said nothing.
+
+"Whatever you're looking for," Maya said, "be careful what you find. Some truths aren't worth the cost."
 
 
 ### Part VI: The Roof
 
-Arjun couldn't sleep.
+At 2 AM, Arjun climbed to the roof terrace.
 
-At 2 AM, he found a door to the roof terrace and climbed up. London spread below him, orange streetlights bleeding into the dark. Cold air bit at his face.
+London sprawled below. Sirens somewhere distant. The smell of rain-wet stone and exhaust. A plane's lights blinked across the purple-black sky.
 
-He wasn't alone.
+Vidya was already there. Cigarette between her fingers, ember pulsing orange.
 
-Vidya stood at the railing, a cigarette between her fingers.
+"You don't smoke," he said.
 
-"I didn't know you smoked," he said.
+"You don't write." She didn't turn. "People change."
 
-"I didn't know you wrote." She didn't turn around. "We both have secrets."
+He walked to the railing. The iron was cold through his sleeves. Three feet between them.
 
-He walked to the railing, keeping three feet between them. They stood in silence for a full minute.
+"The Bloomsbury flat," he said.
 
-"The letter," he said finally. "That was you."
+She went still. The cigarette paused halfway to her mouth.
 
-"What letter?"
+"I told Priya things in that flat. Personal things. Things only she would know." He turned to face her profile. "Did she tell you about Mehta Tower? About the inspection report?"
 
-"Don't play games, Vidya. V. The note about Mehta Tower."
+Vidya exhaled smoke. It dissolved into the night.
 
-Now she turned. Her face was calm, almost bored.
+"Yes."
 
-"I don't know what you're talking about."
+"Did you write the letter?"
 
-"Your sister told you. When we were together, I told Priya about the inspection report. I told her everything. And after we broke up, she told you."
-
-"Priya tells me lots of things. That doesn't mean I write anonymous letters."
+"No."
 
 "Then who?"
 
-Vidya took a long drag on her cigarette. The ember glowed orange.
+She faced him now. Her eyes reflected the distant city lights.
 
-"Maybe you have more enemies than you realize. Maybe Mehta Tower isn't your only secret."
+"I don't know. But I can tell you this: Priya isn't the only person who knows your secrets, Arjun. You told her. She told me. I never told anyone. But secrets have a way of multiplying."
 
-She dropped the cigarette, crushed it with her heel, and walked past him toward the door.
+"That's not an answer."
 
-"Sleep well, Arjun. Tomorrow's going to be a long day."
+"It's the only one I have." She dropped the cigarette, crushed it. "I came here to win. Not to destroy you. My book does that well enough on its own."
+
+She walked toward the door, then stopped.
+
+"One more thing. The professor. Something's wrong there. She asked me about Virginia Ashworth yesterday, before we even arrived. Wanted to know if I'd met her before."
+
+"What did you say?"
+
+"I said no. Because it's true." Vidya's voice hardened. "But she didn't believe me. And she's watching all of us like we're pieces on a board she's trying to figure out."
+
+She left.
+
+Arjun stayed on the roof, cold seeping through his jacket, thinking about boards and pieces and who was really moving them.
 
 
 ### Part VII: The First Reading
 
-The next morning, they were loaded into another black car and driven to a bookshop in Bloomsbury. Fifty chairs had been set up. Every seat was filled.
+The bookshop in Bloomsbury smelled of ink and dust and something sweet, like old vanilla.
 
-Virginia Ashworth introduced them one by one.
+Fifty chairs. Every one filled. Faces turned toward the makeshift stage.
 
-Ravi went first. He read from his novel about a young man who discovers his family's fortune was built on exploitation. His voice was confident, practiced. The audience laughed at the right moments, gasped at the reveals.
+Ravi read first. His prose was slick, polished, perfectly paced. The audience laughed on cue, gasped on cue. Arjun felt nothing.
 
-Dr. Iyer followed. Her prose was dense, academic, but underneath it burned a quiet rage. The audience leaned forward, caught.
+Dr. Iyer followed. Dense sentences that demanded rereading. But beneath the academic structure, rage simmered. The audience leaned forward.
 
-Maya read sitting down, her voice thin but unwavering. Her story about a woman facing death made three people in the front row cry.
+Maya read sitting down. Her voice was thin but steady. Her story about a woman outrunning death made a man in the front row cover his eyes.
 
 Then Vidya.
 
-She walked to the podium like she'd been born there. Her novel was called *The Architect's Wife*, and as she began reading, Arjun's blood went cold.
+She walked to the podium like she owned it. Opened her manuscript.
 
-It was about a woman married to an architect. A woman who discovers her husband has been hiding a fatal flaw in one of his buildings. A woman who must decide whether to protect him or expose him.
+"Chapter Seven," she said. "'The Architect's Wife.'"
 
-The details were different. The names were changed. But the bones of the story, the ethical knot at its center, was Mehta Tower.
+Arjun's hands gripped the armrests.
 
-Was Priya.
+The story was about a woman who discovers her husband, an architect, has been hiding a structural flaw in a building. A flaw that could kill people. The wife must choose: protect him, or expose him.
 
-Was him.
+The details were altered. Names changed. But the bones were Mehta Tower.
 
-He sat frozen as Vidya read. Her eyes found his once, just for a moment, and he saw it clearly now: this wasn't coincidence, wasn't accident, wasn't the universe's sick humor.
+Were Priya.
 
-This was revenge.
+Were him.
+
+Vidya read for ten minutes. At minute three, Arjun made a decision.
+
+He wouldn't let this ambush define him.
+
+When his turn came, he walked to the podium and set aside his prepared pages.
+
+"I was going to read chapter one," he said. "But something happened this week that changed my mind."
+
+The audience stirred. Virginia Ashworth's eyes narrowed.
+
+"My novel is about walls. The ones we build around ourselves after loss. The ones we convince ourselves are protection when they're really prisons." He paused. "I've been building walls my whole life. Around my work. Around my failures. Around the things I'm ashamed of."
+
+He looked directly at Vidya.
+
+"Someone recently told a story that felt familiar. About an architect who hid a flaw. Who chose silence over truth." He took a breath. "That architect was based on me. The flaw was real. And she's right to be angry."
+
+Murmurs in the crowd. Virginia Ashworth's face was unreadable.
+
+"I'm going to read something different. Something I wrote last night, in my room, after I realized that the man I'm trying to become can't keep running from the man I've been."
+
+He read for eight minutes. About complicity. About the slow corruption of small compromises. About his grandfather's notebook and the promise to write for the mirror.
+
+When he finished, the silence was different. Not polite. Not entertained.
+
+Wounded.
+
+He'd wounded them the way only truth can wound.
 
 
-### Part VIII: Confrontation
+### Part VIII: Virginia
 
-After the reading, Arjun cornered her in the bookshop's back office.
+After the reading, Virginia Ashworth intercepted him in the hallway.
 
-"You wrote about me."
+"That was either very brave or very stupid," she said.
 
-"I wrote fiction."
+"Probably both."
 
-"Fiction based on me. On Priya. On what I told her in confidence."
+"Walk with me."
 
-Vidya leaned against a shelf of dusty paperbacks. Her calm made him want to break things.
+They moved through the bookshop's back corridors. Shelves loomed. Dust motes floated in slant light.
 
-"You broke my sister's heart," she said. "You made her believe you were someone, and then you threw everything away for a fantasy. She cried for weeks. She still flinches when someone mentions architects. Do you understand what that does to a person?"
+"You researched me," she said. It wasn't a question.
 
-"That doesn't give you the right to steal my story."
+Arjun didn't deny it. "1987. Vikram Sengupta."
 
-"Your story?" She laughed, sharp and bitter. "It's not your story, Arjun. It's hers. She lived it. She paid for your principles. And you think you own the narrative because you were the one holding the pen?"
+Virginia stopped walking. Her face showed nothing, but her hand tightened on her sleeve.
 
-He had no answer.
+"I wondered when that would surface." She turned to face him. "What do you want to know?"
 
-"Here's the thing," Vidya continued. "I didn't write that letter. I don't know who did. But I'm glad someone knows what you really are. Not a principled man who walked away from corruption. A coward who ran when facing the truth got too expensive."
+"Did you steal his manuscript?"
 
-She pushed past him.
+"No." Her voice was steady. "I rejected it. A year later, a novel with similar themes was published by someone else. Vikram assumed I'd sold his idea. He spent twenty years trying to prove it."
 
-"May the best book win."
+"Did he?"
+
+"He died trying." She paused. "His sister believes I destroyed her brother. She's not entirely wrong, though not in the way she thinks."
+
+"Dr. Iyer is his sister."
+
+"I know." Virginia's smile was sad. "I've always known. I invited her anyway."
+
+"Why?"
+
+"Because her book deserved to be here. Because guilt is a luxury I stopped affording years ago. And because Nandini Sengupta-Iyer has spent thirty years becoming a writer worthy of her brother's memory." She touched Arjun's arm. "Whatever game is being played here, I'm not the villain. Neither is she. We're just people who made choices and have to live inside them."
+
+She walked away, heels clicking on the old floor.
+
+Arjun stood in the dusty light, recalibrating everything he thought he understood.
 
 
 ### Part IX: Maya
 
-That night, Maya Chen found him in the garden. She moved slowly, carefully, each step costing more than it should.
+He found her in the garden that night. She sat on a bench, IV port visible under her cardigan sleeve, watching the moon.
 
-"Bad day?"
+"Bold move today," she said without turning. "The confession."
 
-"How could you tell?"
+"It wasn't a confession. It was a declaration."
 
-She lowered herself onto the bench beside him. "You have the look of someone who just realized they're not the hero of their own story."
+"Same thing." She scooted over, making room. "Sit."
 
-Arjun stared at the hedges. Trimmed. Perfect. Fake in a way that real gardens never were.
+He sat. The bench was damp through his pants. The garden smelled of wet earth and something flowering.
 
-"Can I ask you something?" he said.
+"My doctor says I have eight months," Maya said. "Maybe twelve if the new treatment works. Probably not."
 
-"Dying girl wisdom? Sure. It's what I'm here for."
+"I'm sorry."
 
-"How do you keep going? When the evidence says you should stop?"
+"Don't be. It clarifies things." She looked at him. "Why do you keep going?"
 
-Maya was quiet for a long moment.
+"Because I need to know if I'm real. If any of this is real."
 
-"Wrong question," she said finally. "The question isn't how. The question is why. And the answer is different for everyone." She paused. "Why do you keep going?"
+"Short answer. Good." She smiled. "The imperfect ones are always the most real. Perfect people are just liars who haven't been caught yet."
 
-He thought about his grandfather. The framed rejection letters. The notebook.
+They sat in silence. Somewhere, a car horn. A dog barked twice and stopped.
 
-"Because I have to know if it's real. If what I wrote means something, or if I've been lying to myself."
+"V isn't who you think," Maya said finally.
 
-"And what if you find out you've been lying?"
+Arjun turned. "What?"
 
-"Then at least I'll know. At least the question will be answered."
+"The letters. I've seen you reading them. You think it's Vidya, or maybe the professor." She shook her head. "It's not."
 
-Maya smiled. It was the first genuine smile he'd seen from her.
+"How do you know?"
 
-"That's it," she said. "That's the only reason worth having. Not success. Not vindication. Just... knowing." She stood, wincing. "Whatever happens this week, don't let anyone tell you your book isn't real because you're imperfect. The imperfection is *why* it's real."
+"Because I've been getting them too." She pulled a folded paper from her pocket. Same white envelope. Same handwriting.
 
-She walked inside, leaving Arjun alone with the manicured hedges and the cold London night.
+*You're running out of time.*
 
-Somewhere in this house, four other people were wrestling with their own demons.
-
-One of them had written his failures into fiction.
-
-One of them might have sent that letter.
-
-And in three days, someone would win and everyone else would lose.
-
-But Arjun was starting to wonder if winning was even the point anymore.
-
-
-### Part X: The Second Letter
-
-It was under his pillow when he returned to his room.
-
-Same plain white envelope. Same handwriting.
-
-*You think Vidya is your enemy.*
-
-*She's not. She's a distraction.*
-
-*The real threat is closer than you know.*
-
-*Ask Virginia Ashworth about 1987.*
+*Make sure you spend what's left on the truth.*
 
 *V*
 
-Arjun read it three times.
+Arjun stared at the letter.
 
-Then he tucked it into his notebook, turned off the lamp, and lay in the dark, listening to the old house settle around him.
+"I don't have secrets," Maya said. "I'm dying. There's nothing left to hide. So why would someone write to me?"
 
-Someone in this building was playing a game he didn't understand.
+"To confuse the pattern. To make it look like everyone's getting them."
 
-And he was starting to realize: the prize might not be the point at all.
+"Or," Maya said, "because V isn't interested in exposing secrets. V is interested in something else entirely."
+
+"What?"
+
+"That's what I haven't figured out yet." She took the letter back, folded it carefully. "But I think we're about to find out."
+
+
+### Part X: The Third Letter
+
+It was under his pillow when he returned to his room.
+
+Same envelope. Same handwriting.
+
+*You're asking the right questions now.*
+
+*But you're looking in the wrong direction.*
+
+*Virginia Ashworth didn't steal a manuscript in 1987.*
+
+*She stole something much more valuable.*
+
+*Ask Ravi about his grandfather.*
+
+*V*
+
+Arjun sat on the edge of the bed, letter in hand.
+
+Ravi. The young prodigy with rich parents and no history of struggle.
+
+What could Ravi's grandfather have to do with any of this?
+
+He pulled out his phone and searched: *Ravi Anand family grandfather*
+
+The third result made him stop breathing.
+
+*Anand Publishing. Founded 1952 by Suresh Anand. Acquired by...*
+
+He clicked through.
+
+Acquired by a consortium in 1989. Principal investor: Virginia Ashworth.
+
+Suresh Anand had died two years later. Heart attack. His family had accused the new owners of destroying the business deliberately.
+
+Ravi's grandfather.
+
+Virginia's acquisition.
+
+Dr. Iyer's brother.
+
+And somewhere in the middle, letters signed V pointing him toward truths that kept multiplying.
+
+Arjun put the phone down and stared at the ceiling.
+
+Five finalists. One prize.
+
+But the real competition had nothing to do with books.
+
+Someone was settling old scores.
+
+And Arjun was starting to think every person in this house had been chosen not despite their secrets, but because of them.
