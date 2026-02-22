@@ -762,3 +762,359 @@ But the real competition had nothing to do with books.
 Someone was settling old scores.
 
 And Arjun was starting to think every person in this house had been chosen not despite their secrets, but because of them.
+
+
+
+# CHAPTER THREE
+## The Game Behind the Game
+
+
+### Part I: 4 AM
+
+Sleep wouldn't come.
+
+Arjun lay listening to the old house breathe. Pipes groaning in the walls. A floorboard creaking somewhere above. Rain tapping against the window like someone trying to get in.
+
+At 4 AM, he stopped waiting.
+
+He dressed quickly, jeans and sweater, the wool scratchy against sleep-deprived skin. The hallway carpet muffled his footsteps. The air smelled of furniture polish and something older, mustier.
+
+The library door was unlocked. Inside, leather spines cracked with age lined the walls. A green banker's lamp threw a small pool of light across the desk.
+
+He needed more on Ravi Anand's grandfather.
+
+Thirty minutes of searching gave him the shape of the story:
+
+Suresh Anand had built Anand Publishing from nothing. By 1985, it was one of India's largest independent houses. Then came debt problems. Manufactured debt problems, according to court filings that went nowhere. A consortium acquired majority control in 1989. Principal investor: Virginia Ashworth.
+
+The consortium gutted the company within eighteen months. Sold the assets. Dismissed the staff. Suresh Anand filed lawsuits for three years.
+
+Then he died. Heart attack. Age sixty-two.
+
+Ravi would have been a child. Probably didn't remember his grandfather at all.
+
+But someone in his family remembered.
+
+Arjun closed the laptop and sat in the dark, thinking.
+
+Four finalists connected to Virginia Ashworth's past. Four grudges spanning decades. And Maya, who claimed she had no connection at all.
+
+Either Maya was lying, or she was exactly what she appeared to be: an accident of selection.
+
+Or a deliberate choice. A witness.
+
+The house settled around him. Somewhere, a clock chimed five.
+
+
+### Part II: Confrontation
+
+At 6 AM, Arjun knocked on Dr. Iyer's door.
+
+She opened it in a silk robe, reading glasses perched on her nose. No surprise on her face. She'd been expecting someone.
+
+"Mr. Mehra. Come in."
+
+Her room smelled of sandalwood and old books. Papers everywhere. On the nightstand, a photograph: two children standing before the Taj Mahal.
+
+"Vikram," she said, following his gaze. "1962. Before everything fell apart."
+
+"You know why I'm here."
+
+"I know you've been researching. I saw the light in the library." She sat on the edge of her bed. "Ask your questions."
+
+"Did Ashworth steal your brother's manuscript?"
+
+"Not exactly." She removed her glasses. Her eyes were tired. "She rejected it, then did nothing when someone else published a similar book two years later. Vikram could never prove theft. But the idea was his. The structure, the bones, the soul of it."
+
+"And he spent his life fighting."
+
+"Until it killed him. Thirty-four years of legal battles. Every rupee he had." Her voice hardened. "He died in a rented room surrounded by boxes of evidence no court would hear."
+
+"So you're here for revenge."
+
+"I'm here for justice." She stood, moving to the window. Dawn light was beginning to gray the sky. "My novel contains enough truth to be recognized by anyone who knows the history. If I win, Ashworth will have to present my book to the world. She'll stand beside me as I accept her award."
+
+"She'll know what you're doing."
+
+"She already knows." Dr. Iyer turned. "We've known each other forty years, Mr. Mehra. This isn't a surprise. It's an ending." She paused. "The question is what kind of ending. She can acknowledge nothing and watch my victory. Or she can confess and destroy herself."
+
+
+### Part III: The Pattern
+
+Arjun found Maya in the garden after breakfast.
+
+She sat on a stone bench wrapped in a thick cardigan, IV port visible beneath the sleeve. The morning air was cold. Her breath made small clouds.
+
+"You're investigating," she said without looking up. "I can tell by the way you walk. Purpose in every step."
+
+He sat beside her. The bench was damp through his jeans.
+
+"What do you know about Ravi's family?"
+
+"Grandfather destroyed by Ashworth's business practices. Father spent years trying to rebuild. Ravi grew up hearing stories about the woman who ruined them." She pulled the cardigan tighter. "He doesn't talk about it. But it's there. Under the arrogance."
+
+"And you knew all this before we arrived."
+
+"I research everything." No apology in her voice. "When you're dying, you don't have time to be surprised."
+
+"So everyone here has a connection to Ashworth except you."
+
+"Correct."
+
+"Why do you think she chose you?"
+
+Maya was quiet for a moment. A bird sang somewhere in the hedges.
+
+"Two possibilities," she said finally. "Either my book was genuinely the best of the submissions, and she didn't check my background. Or..." She turned to face him. Her eyes were sharp despite her thin face. "Or she wanted a witness. Someone with no stake in the game. Someone who could see clearly."
+
+"See what?"
+
+"Whatever happens next."
+
+
+### Part IV: The Alliance
+
+That evening, Arjun called a meeting.
+
+The library again. Dr. Iyer, Maya, and Vidya. Not Ravi. Not yet.
+
+"I know what's going on," he said. "I know about the connections."
+
+Dr. Iyer's face was stone. Vidya looked away. Maya watched with interest.
+
+"Every finalist was chosen for a reason. Dr. Iyer, your brother. Ravi, his grandfather. Vidya..." He met her eyes. "You wrote about my failures, and Ashworth selected it anyway. She knew exactly what she was doing."
+
+"What's your point?" Vidya's voice was cold.
+
+"My point is we're being tested. All of us. Ashworth wants to know what we'll do when we're in the same room with our demons." He paused. "I'm done being moved around a board I didn't know existed."
+
+"What do you suggest?" Dr. Iyer asked.
+
+"We share what we know. Every secret. Every connection. We figure out who V is, and what Ashworth actually wants. Then we decide together what to do."
+
+Silence. The library clock ticked.
+
+"Why should I trust you?" Vidya asked. "You destroyed my sister."
+
+"I destroyed myself too. And I'm trying to be better." He held her gaze. "I'm not asking you to forgive me. I'm asking you to work with me for one week."
+
+Maya spoke first. "I've got months left. Maybe less. I don't have time for enemies." She looked at the others. "I'm in."
+
+Dr. Iyer considered. "My brother fought alone for thirty years. It killed him. Perhaps a different approach is worth trying."
+
+Vidya was last. Her jaw tight.
+
+"Fine," she said. "One week. But if you screw this up, I will personally destroy whatever's left of your reputation."
+
+
+### Part V: The Revelation
+
+They talked for three hours, sharing everything.
+
+Dr. Iyer's evidence against Ashworth. Vidya's conversations with Priya. Maya's research into each finalist's background. Arjun's letters from V.
+
+By midnight, they had a map spanning four decades. But one question remained.
+
+"V isn't any of us," Arjun said. "It's not Vidya, she denies it. It's not Dr. Iyer, she'd have no reason to be cryptic about her own history. It's not Maya, she just arrived."
+
+"What about Ravi?" Vidya asked.
+
+"Ravi's too obvious. Too careless. He doesn't seem like someone playing a long game."
+
+"Unless that's exactly what he wants us to think," Maya said.
+
+Arjun shook his head. "V knew about Mehta Tower. That means V has access to information from India, from my past specifically. Ravi's been in London since he was sixteen. He has no connections to the architecture world."
+
+"Then who?" Dr. Iyer asked.
+
+The clock struck midnight. The house creaked around them.
+
+"Someone we haven't considered," Arjun said. "Someone in the background. Staff. Assistants. Someone who's been watching all of us."
+
+Maya stood slowly, bracing against a chair. "There's another possibility."
+
+"What?"
+
+"V isn't a person in this house." She moved toward the door. "V is someone who's been dead for six years."
+
+She left them sitting in stunned silence.
+
+
+### Part VI: The Dead
+
+Arjun caught her in the hallway.
+
+"What do you mean, dead?"
+
+Maya stopped, leaning against the wall. The walk had cost her. Her breathing was uneven.
+
+"Vikram Sengupta died in 2019. But before he died, he spent thirty years collecting evidence. Boxes of documents. Letters. Financial records." She paused to catch her breath. "What happens to thirty years of obsession when the obsessed person dies?"
+
+"Someone inherits it."
+
+"Someone. Or something." She looked at him. "Vikram was paranoid by the end. He didn't trust anyone. What if he set up a system? Automated letters. Triggered by certain events."
+
+"That's impossible."
+
+"Is it? In 2015, a startup launched a service called 'Dead Man's Mail.' Letters scheduled to send after the user dies. Password-protected. Encrypted." She smiled thinly. "Vikram was dying. He knew he'd never see Ashworth punished. But he could set things in motion for someone else to finish."
+
+"The letters. The timing."
+
+"All pre-planned. Waiting for the right conditions." Maya pushed off the wall. "I found the service in my research. They confirmed an account in Vikram's name still exists. Still active. Still sending scheduled messages."
+
+Arjun felt the floor shift beneath him.
+
+"V isn't a person in this house," he said slowly. "V is a dead man's revenge."
+
+"V is a dead man's hope," Maya corrected. "He's counting on one of us to finish what he started."
+
+
+### Part VII: The Test
+
+The next morning, Arjun made a decision.
+
+He'd been reacting since he arrived. Following clues. Answering questions. Playing defense.
+
+Time to play offense.
+
+He found Virginia Ashworth in her study. Morning light streamed through tall windows. She sat at a desk covered with manuscripts, reading glasses perched on her nose.
+
+"Mr. Mehra." She didn't look up. "You've been busy."
+
+"I know about Vikram Sengupta. I know about Suresh Anand. I know why you chose each of us."
+
+Now she looked up. Her face revealed nothing.
+
+"And?"
+
+"And I want to know why. The real reason. Not guilt, not redemption, not any of the stories you tell yourself." He stepped closer. "What do you actually want from us?"
+
+She removed her glasses. Studied him for a long moment.
+
+"Sit down, Mr. Mehra."
+
+He sat.
+
+"In 1985, I was young and afraid. I rejected a brilliant manuscript because I wasn't brave enough to champion it. I've spent forty years building this organization, this prize, not to atone, but to ensure I never make that same choice again."
+
+"That's not an answer."
+
+"It's the only answer I have." She leaned back. "I chose each of you because your books deserved to be here. Yes, I knew the histories. Yes, I knew the connections. I also knew that writers who have suffered, who have failed, who have wrestled with impossible choices, write better than those who haven't."
+
+"You're using us."
+
+"I'm recognizing you. There's a difference." She stood, moving to the window. "Every one of you has been told, in some way, that you're not enough. That your voice doesn't matter. That your story isn't worth telling." She turned back. "I'm telling you the opposite. I'm putting you on a stage and saying: here they are. The ones who refused to quit."
+
+"And the secrets? The letters? The games being played behind the scenes?"
+
+"I have no idea who's sending those letters, Mr. Mehra. I have suspicions. But I've chosen not to interfere." Her voice softened. "Because I believe the truth, whatever it is, will serve everyone better than my protection."
+
+
+### Part VIII: The Choice
+
+That night, Arjun stood before the bathroom mirror.
+
+The face looking back was tired. Three days in London. Three days of secrets and revelations. And still, he didn't know why he was really here.
+
+To win a prize? To expose his own failures? To help Maya and Dr. Iyer settle debts that weren't his?
+
+*Write for the man in the mirror*, his grandfather had said.
+
+He looked at that man now. The stubble. The shadows under his eyes. The uncertainty that had replaced arrogance.
+
+What did this man want?
+
+The answer came slowly. Not as a revelation, but as an acknowledgment of something he'd always known.
+
+He wanted to be honest. Fully, completely honest. Not for redemption. Not for validation. Just because truth was the only foundation that didn't crack.
+
+He pulled out his phone. Found Meera's number. Typed:
+
+*When I get back, I need to tell you something. About Mehta Tower. About everything.*
+
+Her response came in seconds: *I already know.*
+
+He stared at the screen.
+
+*How?*
+
+*Someone sent me documents three days ago. Inspection reports. Emails. Everything.*
+
+V.
+
+The dead man's letters weren't just reaching the finalists. They were reaching everyone.
+
+*Are you angry?* he typed.
+
+A long pause. Then: *I'm sad. For you. For the situation. But not angry.*
+
+*Why?*
+
+*Because you're finally telling me yourself. That matters.*
+
+He stood in the bathroom, phone in hand, feeling something shift inside him. Something like relief. Something like the first breath after holding one too long.
+
+The truth was out.
+
+And he was still standing.
+
+
+### Part IX: The Night Before
+
+The competition ceremony was tomorrow.
+
+One of them would win. The others would go home with nothing but experience and scars.
+
+Arjun couldn't sleep. Again.
+
+At midnight, he climbed to the roof terrace. The city sprawled below, orange and gray in the darkness. Cold wind bit his face. The smell of rain coming.
+
+He wasn't alone.
+
+Ravi Anand stood at the railing, his back to the door. No phone this time. Just a young man staring at the city.
+
+"Can't sleep either?" Arjun asked.
+
+"Never can. Before anything important." Ravi didn't turn. "You figured it out, didn't you? About my grandfather."
+
+"I did."
+
+"I was four when he died. I don't remember him." Ravi's voice was different. Quieter. No performance in it. "But my father talked about him constantly. How brilliant he was. How she destroyed him."
+
+"Ashworth."
+
+"She was the principal investor in the consortium that took his company. She was the one who made the calls." He turned now. His face was young in the dim light. Vulnerable in a way Arjun hadn't seen before. "I told myself I came here to prove I was good enough. That my book was good enough. But really..."
+
+"You came for revenge."
+
+"I came for answers." Ravi shrugged. "Turns out they're the same thing."
+
+They stood in silence for a moment. The wind picked up.
+
+"What are you going to do?" Arjun asked.
+
+"Win, if I can. Go home if I can't. Either way, I'll keep writing." He smiled slightly. "That's the only revenge that actually works. Becoming someone they can't ignore."
+
+"And if Ashworth isn't the villain your family said she was?"
+
+Ravi considered this. "Then I'll have to decide if I'm big enough to let go of thirty years of family anger." He laughed softly. "I'm twenty-one. I don't know if I'm big enough for anything yet."
+
+He headed for the door, then stopped.
+
+"Mehra. For what it's worth, I read your book. On the flight over." He paused. "It's good. Really good. Don't let anyone tell you otherwise."
+
+He left.
+
+Arjun stayed on the roof, watching the city lights blur through incoming rain.
+
+Tomorrow, someone would win.
+
+But he was starting to understand that winning might be the least important thing that happened here.
+
+The real victory would be simpler. Harder.
+
+The real victory would be walking out of this house knowing exactly who he was.
+
+And being okay with that.
+
+Finally.
