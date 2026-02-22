@@ -934,7 +934,152 @@ She set down the chai. Her fingers found a worn spot on the bedspread, rubbed it
 She took a long drink, watching him over the rim.
 
 
-### Part III: The Pattern
+### Part III: Vidya, Alone
+
+*That same morning, Vidya sat in her room with the door locked.*
+
+*She hadn't slept. Hadn't tried. The reading last night had gutted her, and not in the way she'd expected.*
+
+*On the desk: her manuscript. "The Architect's Wife." Three hundred pages she'd written in fury, in grief, in the particular madness that comes from watching your sister love someone who didn't deserve it.*
+
+*She'd meant the book to be a weapon. And it had been. She'd seen Arjun's face when she'd read Chapter Seven. The recognition. The shame.*
+
+*But then he'd stood up. He'd confessed. In front of everyone.*
+
+*That wasn't supposed to happen.*
+
+*Villains were supposed to deny. Deflect. Blame. That's what the men in her mother's stories always did, the ones who broke promises and left women to clean up the wreckage. That's what Arjun was supposed to do.*
+
+*Instead, he'd told the truth. The ugly, unflinching truth.*
+
+*She pulled out her phone. Scrolled to a photograph she'd saved years ago.*
+
+*Arjun and Priya at their engagement party. Both smiling. Priya's hand on his chest, possessive and proud. Arjun looking at her like she'd invented the concept of light.*
+
+*Vidya remembered that party. She'd stood in the corner, watching, feeling something she'd never admitted to anyone.*
+
+*Not jealousy. Not exactly.*
+
+*Envy. For the certainty. For the way Priya could believe in someone so completely.*
+
+*Vidya had never believed in anyone like that. Not their parents, who'd divorced when she was twelve. Not her string of boyfriends, each one disappointing in predictable ways. Not even herself.*
+
+*She was a skeptic. A watcher. The one who saw the cracks before the collapse.*
+
+*And she'd been right about Arjun. She'd seen it before Priya had. The way he disappeared into himself sometimes. The nightmares he never explained. The distance that grew between them like fog rolling in.*
+
+*"He's hiding something," she'd told Priya, two months before the breakup. "I don't know what, but it's eating him."*
+
+*Priya hadn't listened. Priya never listened.*
+
+*And then the breakup came, and Vidya had been vindicated, and she'd written a book about it, and she'd come to London to win a prize with her sister's pain.*
+
+*Except now Arjun had confessed. And Priya had cried on the phone this morning, not angry tears but something softer. Something that sounded dangerously like hope.*
+
+*"Maybe he's finally becoming who he was supposed to be," Priya had said.*
+
+*Vidya had wanted to scream. To tell her sister that men don't change, that apologies are just manipulation in different packaging, that the only safe way to live was to expect disappointment.*
+
+*But she hadn't.*
+
+*Because she'd seen Arjun's face at the reading. And she didn't think he was manipulating anyone.*
+
+*She thought he was just... broken. Like her. Like everyone.*
+
+*Vidya closed the photograph. Opened her manuscript instead.*
+
+*Chapter Seven. The Architect's Wife.*
+
+*She read it again, seeing it differently now. The husband wasn't a monster. He was a coward. There was a difference.*
+
+*And cowards could change. Sometimes. If they got scared enough.*
+
+*She pulled out a pen and started making notes in the margins.*
+
+*The book wasn't finished. She'd thought it was, but it wasn't.*
+
+*There was another chapter to write. The one where the wife has to decide whether broken things can be beautiful.*
+
+
+### Part IV: The Prodigy's Secret
+
+While Arjun talked to Maya in the garden, Ravi Anand was conducting his own investigation.
+
+He'd found Virginia Ashworth's personal assistant in the kitchen, a nervous young man named Thomas who was responsible for "finalist liaison" and clearly had no idea what that meant.
+
+"So you've worked for her how long?" Ravi leaned against the counter, affecting casual interest.
+
+"Three years." Thomas was making tea with the precise anxiety of someone who knew his employer was always watching. "Started as an intern. Worked my way up."
+
+"She ever mention my grandfather? Suresh Anand?"
+
+Thomas's hands froze over the teapot.
+
+"I don't... I'm not sure I should..."
+
+"It's not a secret. The business acquisition in 1989. Everyone knows about it." Ravi smiled, the smile that had opened doors since he was sixteen. "I'm just curious. Does she ever talk about those days?"
+
+"Not to me." Thomas resumed making tea, but his movements were jerky now. "She doesn't talk about the past much. Keeps everything compartmentalized."
+
+"But you've seen files. Documents. You manage her correspondence."
+
+"Mr. Anand, I really can't..."
+
+"Call me Ravi. And you can. You just choose not to." He pushed off the counter. "Here's the thing, Thomas. I'm not trying to destroy anyone. I just want to understand what happened. My father's spent twenty years angry at a woman he's never met. I'd like to know if that anger is justified."
+
+Thomas set down the teapot. His face was conflicted.
+
+"There's a storage room. In the basement. She keeps old files there, from before the digital era. I've never been inside, but I've seen her go down there sometimes. Late at night."
+
+"Key?"
+
+"On her desk. Silver, with a lion's head." Thomas glanced toward the door. "I never told you this."
+
+"Told me what?" Ravi grinned. "Thanks for the tea."
+
+
+Twenty minutes later, he was in the basement.
+
+The storage room was smaller than he'd expected. Rows of filing cabinets, each labeled with decade ranges. The air smelled of old paper and dust.
+
+He found the 1980s cabinet and pulled it open.
+
+Folders. Dozens of them. Correspondence, contracts, financial statements. His grandfather's name jumped out from several tabs.
+
+He pulled the thickest folder. Read.
+
+The documents told a story he'd never heard.
+
+Suresh Anand had been in debt. Serious debt, hidden from his family, the result of bad investments and a business expansion that had failed. The consortium's acquisition hadn't been a hostile takeover. It had been a rescue.
+
+Virginia Ashworth had saved his grandfather's company from bankruptcy.
+
+And then... Ravi read further, his hands trembling slightly.
+
+The consortium had brought in new management. Suresh had resisted. There had been arguments, lawsuits, accusations of fraud. The new managers had documented everything: his grandfather's erratic behavior, his refusal to accept help, his growing paranoia.
+
+The company hadn't been destroyed. It had imploded. With Suresh Anand at the center, refusing every hand extended to save him.
+
+Ravi sat on the cold floor, files spread around him.
+
+His father had lied. Or been lied to. Either way, the story Ravi had grown up hearing, the story of a brilliant man destroyed by a ruthless Englishwoman, wasn't the whole truth.
+
+Maybe it wasn't the truth at all.
+
+He photographed every document. Then he put the files back, exactly as he'd found them, and climbed back up the stairs.
+
+Thomas was waiting at the top.
+
+"Find what you were looking for?"
+
+Ravi considered lying. Decided he was too tired.
+
+"I found a different story than the one I expected."
+
+"That happens a lot in this house." Thomas handed him a cup of tea. "Drink this. You look like you need it."
+
+
+### Part V: The Pattern
 
 Arjun found Maya in the garden after breakfast.
 
@@ -1004,9 +1149,71 @@ Vidya was last. She'd torn the skin beside her thumbnail. A bead of blood appear
 
 ### Part V: The Revelation
 
-They talked for three hours, sharing everything.
+They talked for three hours.
 
-Dr. Iyer's evidence against Ashworth. Vidya's conversations with Priya. Maya's research into each finalist's background. Arjun's letters from V.
+Dr. Iyer went first. She pulled a folder from her bag, thick with yellowed documents, and spread them across the library table.
+
+"Vikram kept everything." She touched a photograph of a young man with intense eyes. "Letters to Virginia, drafts of his manuscript, the rejection she sent. Every piece of evidence he collected over thirty years."
+
+"How did you get these?" Arjun asked.
+
+"His storage unit. After he died, I spent six months going through boxes." Her voice cracked slightly. "He was more organized than I expected. The obsession had a system."
+
+Maya leaned forward, studying the documents. "This letter. Dated 1987. It's from Edgar Whitmore to a publisher. He's describing a book that sounds exactly like Vikram's manuscript."
+
+"That's the closest we ever got to proof." Dr. Iyer touched the letter. "But Whitmore was dead by then. And his estate refused to cooperate."
+
+Vidya spoke for the first time in twenty minutes. "What about Priya? What did she know?"
+
+Arjun turned to her. "About the competition?"
+
+"About you. About Mehta Tower." Vidya's jaw tightened. "I need to understand the whole picture, Arjun. Not just the parts you've decided to share."
+
+He took a breath.
+
+"She knew something was wrong. In the last months before she left." He stared at the table. "I was having nightmares. Waking up at three AM, checking the news. She asked me what was going on, and I couldn't tell her."
+
+"Why not?"
+
+"Because if I said it out loud, it would be real. And if it was real, I'd have to do something about it." He met Vidya's eyes. "She didn't know the specifics. But she knew I was hiding something. That's part of why she left. She said she couldn't love someone who was disappearing."
+
+Silence.
+
+Maya broke it, her voice gentle. "We all have things we hid from people we loved. That's not unique to you."
+
+"What did you hide?" Vidya asked, turning to her.
+
+Maya was quiet for a moment. Then she pulled out her sketchbook, flipped past drawings of hedgerows and faces, stopped at a page filled with names and connecting lines.
+
+"My grandmother. Chen Wei-Lin. She worked as a translator in London in the 1980s. Literary circles." Maya traced one of the lines. "I found out last year, going through her papers after she died. She translated sample chapters for publishers. Including..." She tapped a name. "Edgar Whitmore."
+
+Dr. Iyer went still.
+
+"Your grandmother worked for Whitmore?"
+
+"Briefly. Two months in 1986. She translated Indian manuscripts into English summaries for him. Including..." Maya met Dr. Iyer's eyes. "A novel by Vikram Sengupta."
+
+The silence was absolute.
+
+"You're connected too," Arjun said slowly. "You're not an accident."
+
+"I didn't know until I started researching everyone in this house." Maya closed the sketchbook. "My grandmother never mentioned it. She died before I could ask. But I found her notes, her logs. She translated three chapters of Vikram's book into English. Whitmore never paid her for the work."
+
+Dr. Iyer's hand trembled against the table.
+
+"She was the bridge," Dr. Iyer whispered. "The way Whitmore accessed enough of my brother's work to steal it."
+
+"Not intentionally. She was just doing a job." Maya's voice was quiet. "But yes. Without my grandmother's translation, Whitmore couldn't have adapted the manuscript. He didn't read Hindi."
+
+The air in the library felt heavy.
+
+"So everyone here has a connection," Arjun said. "Every single one of us."
+
+"Which means Virginia chose us deliberately," Dr. Iyer said. "She knew exactly whose ghosts she was inviting into her house."
+
+Maya pulled out Arjun's V letters, laying them beside the documents.
+
+"Now we just need to figure out who's sending these. And why now."
 
 By midnight, they had a map spanning four decades. But one question remained.
 
@@ -1069,21 +1276,39 @@ She gripped the banister, breathing hard. The walk had cost her. She pulled a pi
 
 "Triggers?"
 
-"Conditions that have to be met before a letter sends. Date-based, mostly. But some are event-based." She ticked them off on thin fingers. "'If Virginia Ashworth announces a competition.' 'If my sister enters that competition.' 'If a journalist publishes about Mehta Tower.'" She met his eyes. "Each condition, when met, releases the next batch of letters to the relevant people."
+"Conditions that have to be met before a letter sends. Date-based, mostly. But some are event-based." She ticked them off on thin fingers. "'If Virginia Ashworth announces a competition.' 'If my sister enters that competition.'"
 
 Arjun's legs felt unsteady. He sat on the step beside her.
 
+"But some of the letters are too specific. Mine mentioned Mehta Tower. The inspection report. That happened in 2022. Vikram died in 2019."
+
+Maya nodded slowly. "I thought about that. Asked the service about it."
+
+"And?"
+
+"The account has two authorized users." She held up two fingers. "Vikram was the primary. But there's a secondary user who's been active since his death. Someone who can add new letters. Update triggers. Keep the system current."
+
+"Who?"
+
+"They wouldn't tell me. Privacy policy." She pulled out her sketchbook, flipped to a page covered in notes. "But I've been digging. Vikram had a lawyer. Sanjay Kulkarni. Estate attorney in Mumbai. He was named executor of Vikram's will, with specific instructions to 'continue the work.' I found an interview from 2020 where Kulkarni said he was 'honoring a client's final wishes' without elaborating."
+
+"So Vikram set up the system, but Kulkarni is maintaining it. Adding new information as it surfaces."
+
+"Exactly. He's monitoring news, court filings, industry gossip. When something relevant happens, like your Mehta Tower situation, he adds it to the system. Writes new letters. Updates the triggers." Maya closed her sketchbook. "V isn't just a dead man's automation. It's a dead man's mission, carried forward by a living accomplice."
+
+"Who's been watching me for years."
+
+"Watching everyone connected to Virginia Ashworth. You just happened to give him something to write about."
+
+Arjun stared at the stairs below them.
+
 "So the moment this competition was announced..."
 
-"His system woke up. Started checking conditions. Started sending." Maya nodded. "It's elegant, actually. He couldn't be here, so he built something that could act in his place. A dead man's automation. Ghost in the machine."
+"The system woke up. Kulkarni added your specific details. Started sending." Maya nodded. "Elegant, actually. Vikram couldn't be here, so he built something that could act in his place. And made sure someone would keep it alive after he died."
 
-"V isn't a person," Arjun said slowly. "V is..."
+"V isn't just a person or just a system," Arjun said slowly. "It's both. A dead man's hope, maintained by a living accomplice."
 
-"A dead man's hope." Maya patted his knee with surprising gentleness. "Not revenge. He didn't want to destroy anyone. He wanted the truth to surface. So he built a system that would keep pushing until someone finished what he couldn't."
-
-"Someone like us."
-
-"Someone like us."
+"Exactly." Maya patted his knee with surprising gentleness. "He wanted the truth to surface. So he built an institution to make it happen."
 
 
 ### Part VII: The Test
@@ -1510,13 +1735,39 @@ Silence.
 
 "I'm going to the safety board when I get back. The newspapers too. You can publish whatever you want. I'm done hiding."
 
-Longer silence.
+Longer silence. No papers rustling now.
 
 "Why are you telling me this?"
 
-"Because I spent four years afraid of this phone call. And now that it's happening, I'm not afraid anymore." He looked at his reflection in the window. A man who looked tired but, somehow, less haunted than yesterday. "Do your story. Make it thorough. But when you write about the guy who stayed silent, add a line about the guy who finally spoke up."
+"Because I spent four years afraid of this phone call. And now that it's happening, I'm not afraid anymore."
 
-He hung up before Rao could respond.
+"Most people in your position would be hiring lawyers. Crafting spin."
+
+"I'm not most people." He paused. "Do your story. Make it thorough. But when you write about the guy who stayed silent, add a line about the guy who finally spoke up."
+
+Another pause. When Rao spoke again, his voice was different. Quieter. The aggressive edge had softened.
+
+"My father was a construction worker. Twenty years ago, a building collapsed in Pune. Shoddy construction, everyone knew, but nobody talked. Forty-three people died." Rao cleared his throat. "My father wasn't in the building. But his friend was. And the men who built that building never faced a single charge."
+
+"I'm sorry."
+
+"I became a journalist because of that collapse. To find the men who stay silent. To make them answer." A long exhale. "But you're not staying silent, are you? You're calling me before I call you. You're going to the authorities yourself."
+
+"I should have done it four years ago."
+
+"Yeah. You should have." Papers shuffled again. "Tell you what, Mehra. I'll hold the story for two weeks. Give you time to make your statement to the safety board first. Let you control the narrative, at least a little."
+
+"Why would you do that?"
+
+"Because the story I want to write isn't about another silent architect covering his ass. That story is boring. I've written it a dozen times." His voice hardened again, but differently now. "The story I want to write is about a man who destroyed his own career to save people who'll never know his name. That's a better story. That's the one I came into this profession to tell."
+
+Arjun stared out the window at London's gray sky.
+
+"Two weeks."
+
+"Two weeks. Don't make me regret it."
+
+He hung up.
 
 
 ### Part V: The Dress Rehearsal
@@ -1826,3 +2077,924 @@ Not good. Not bad. Not special. Not ordinary.
 Just a man who'd stopped running.
 
 He stayed on the roof until the sky began to lighten. Then he went inside, packed his bag, and prepared to face whatever came next.
+
+
+
+# CHAPTER FIVE
+## Coming Home
+
+
+### Part I: The Flight
+
+The plane banked over Mumbai at sunset.
+
+Through the scratched window, Arjun watched the city emerge from haze. The Arabian Sea, gunmetal gray. Marine Drive curving like a question mark. A million lights blinking on as darkness fell.
+
+Home.
+
+The word felt different now. Smaller. Or maybe he'd grown larger.
+
+The woman next to him had spent the flight reading a thriller, occasionally gasping at plot twists. Normal life. Normal concerns. He'd forgotten what that felt like.
+
+His phone buzzed as soon as they touched down.
+
+Meera: *I'm at arrivals. Don't argue.*
+
+Then Nikhil Rao: *Clock's ticking, Mehra. Twelve days.*
+
+Then an unknown number: *Mr. Mehra, this is the Mumbai Building Safety Authority. We've received documents regarding Mehta Tower. Please contact our office at your earliest convenience.*
+
+V's system was still working.
+
+The dead man's automation had reached the safety board.
+
+Arjun pocketed his phone and waited for the seatbelt sign to turn off.
+
+
+### Part II: Meera
+
+She was leaning against a pillar in arrivals, wearing paint-stained jeans and a t-shirt that said "I MAKE ART AND QUESTIONABLE DECISIONS."
+
+"You look..." She studied his face. "Different."
+
+"Good different or bad different?"
+
+"Alive different." She grabbed his bag before he could protest. "Come on. I'm parked illegally."
+
+Her car was an ancient Maruti with a crack across the windshield and canvases stacked in the back seat. It smelled like turpentine and old coffee.
+
+"So," she said, pulling into traffic. "You confessed to fifty strangers, lost a prize to a dying woman, and called a journalist to offer yourself up for sacrifice." She honked at a rickshaw that cut too close. "Productive week."
+
+"That's one way to put it."
+
+"How would you put it?"
+
+He watched the city slide past. Billboards. Street vendors. A family of four on a single scooter.
+
+"I finally became the person my grandfather wanted me to be."
+
+Meera was quiet for a moment.
+
+"The one who writes for the mirror."
+
+"Yeah."
+
+"And what does the mirror say now?"
+
+He thought about it. The question deserved a real answer.
+
+"It says I have a lot of work to do. Apologies to make. Damage to repair." He turned to her. "But it doesn't look away anymore. That's new."
+
+She reached over and squeezed his hand. Brief. Warm.
+
+"Good. Because the safety board called me too. They want to inspect the building next week. And they're going to need someone who understands the structural issues."
+
+"They called you?"
+
+"I'm still listed as your emergency contact from architecture school." She grinned. "Surprise."
+
+
+### Part III: The Apartment
+
+His apartment smelled like dust and old takeout containers.
+
+Two weeks away. It felt like years.
+
+He dropped his bag in the hallway and walked through the rooms, seeing them fresh. The cramped kitchen with its single burner. The desk buried under rejection letters. The bathroom with the crooked mirror.
+
+The mirror where he'd spent so many hours talking to himself.
+
+He stood before it now.
+
+"Okay," he said. "Let's get to work."
+
+
+The next morning, he called the safety board.
+
+The woman on the phone was brisk, efficient. Her name was Anjali Desai, deputy director.
+
+"We received an anonymous package," she said. "Inspection reports from April 2022. Emails. Photographs. Everything points to a structural concern on the forty-seventh floor of Mehta Tower."
+
+"I know. I was the one who flagged it."
+
+Silence.
+
+"You're the source?"
+
+"I'm the architect who identified the flaw. My boss buried the report. I stayed silent." He took a breath. "I'm not staying silent anymore."
+
+"Mr. Mehra, do you understand the implications? If your assessment is correct, that building may need to be evacuated immediately."
+
+"I understand."
+
+"We'll need you to come in. Today, if possible. Bring everything you have."
+
+He looked at his reflection in the window. A man holding a phone, about to burn down the last remnants of his old life.
+
+"I'll be there in an hour."
+
+
+### Part IV: The Board
+
+The Mumbai Building Safety Authority occupied a gray concrete building that looked like it had been designed by someone who'd never experienced joy.
+
+Anjali Desai was waiting in the lobby. Fifty-something, gray-streaked hair pulled back severely, reading glasses on a chain around her neck. She looked like someone who'd spent thirty years fighting bureaucracy and hadn't quite lost.
+
+"Mr. Mehra. Follow me."
+
+Her office was small, crowded with files, a single window looking out at another concrete wall. She sat behind her desk and gestured for him to take the chair opposite.
+
+"Tell me everything."
+
+He did.
+
+The crack. The confrontation with Rajesh Deshpande. The report he'd written. Kapoor's red FILED stamp. The bonus he'd accepted. The award ceremony where he'd smiled for photographs.
+
+Desai listened without interrupting. Her pen moved across a notepad, recording key points.
+
+When he finished, she set down the pen.
+
+"You understand this could lead to criminal charges. Against Kapoor. Possibly against you."
+
+"I understand."
+
+"You could be barred from practicing architecture."
+
+"I know."
+
+"And you're here anyway."
+
+"I spent four years having nightmares about that building." He met her eyes. "It's time to wake up."
+
+She studied him for a long moment.
+
+"We'll send inspectors tomorrow. If what you're saying is true, we'll need to evacuate the building within forty-eight hours." She stood, extending her hand. "Thank you for coming forward, Mr. Mehra. I know it wasn't easy."
+
+He shook her hand.
+
+"It was the easiest thing I've ever done. I just took four years to do it."
+
+
+### Part V: The Call
+
+That evening, Arjun called Kapoor.
+
+The old man answered on the third ring.
+
+"Mehra." His voice was flat. "I wondered when I'd hear from you."
+
+"You know why I'm calling."
+
+"The safety board contacted me an hour ago. They're sending inspectors tomorrow." A pause. Papers rustling. "You did this."
+
+"I told the truth. Finally."
+
+"The truth." Kapoor laughed, bitter. "You're going to destroy careers, Mehra. Mine. Yours. Deshpande's family, they'll lose his pension. Mehta will sue everyone involved. And for what? A crack that's been stable for four years?"
+
+"Four hundred people work in that building every day."
+
+"And they've been fine."
+
+"So far."
+
+Silence.
+
+When Kapoor spoke again, his voice had changed. Older. Tired.
+
+"I taught you everything, Arjun. Brought you into the firm. Put your name on projects that made your career. And this is how you repay me?"
+
+"You taught me to be silent. I learned that lesson too well." Arjun's grip tightened on the phone. "There's a girl who works on the forty-seventh floor. I saw her photo in a magazine once. Twenty-three. Just started her first job. She takes the elevator up there every morning, trusting that the people who built that building knew what they were doing."
+
+"Mehra..."
+
+"I can't be the reason she dies, Kapoor. I can't live with that anymore. And I don't think you can either."
+
+He hung up.
+
+His hands were shaking. He set down the phone and waited until they stopped.
+
+
+### Part VI: The Inspection
+
+The inspectors arrived at Mehta Tower at 8 AM.
+
+Arjun went with them. Not as an architect, but as a witness. Desai had insisted.
+
+The building looked the same as it had four years ago. Glass and steel reaching toward the sky. The lobby decorated with awards and accolades. A plaque with his name on it, visible from the entrance.
+
+He stopped to look at it.
+
+*National Design Award, 2022. Mehta Tower. Lead Architect: Arjun Mehra.*
+
+"Mr. Mehra?" Desai's voice cut through his thoughts. "We're heading up."
+
+The elevator ride to the forty-seventh floor felt endless.
+
+The crack was still there.
+
+Hairline thin. Running along the northeast corner. Almost invisible unless you knew where to look.
+
+But the inspectors found more.
+
+Water damage behind the drywall. Corrosion on the rebar, more extensive than Arjun had feared. Stress fractures spreading from the original crack like a spider's web.
+
+"The floor isn't safe," the lead inspector said. His face was grim. "I'm recommending immediate evacuation and structural reinforcement."
+
+"How immediate?" Desai asked.
+
+"Today. Now." He pointed at the ceiling. "This floor is carrying maybe sixty percent of its designed load. A heavy footfall in the wrong place, an earthquake, even a bad storm..."
+
+He didn't need to finish.
+
+Arjun looked at the crack. The one he'd spotted four years ago. The one Kapoor had called cosmetic.
+
+It wasn't cosmetic anymore.
+
+
+### Part VII: The Evacuation
+
+By noon, Mehta Tower was being evacuated.
+
+Security guards ushered confused workers out of the building. Elevators ran constantly, carrying people down from floors above the affected zone. News vans began arriving, cameras pointed at the chaos.
+
+Arjun stood across the street, watching.
+
+A young woman emerged from the lobby, laptop bag over her shoulder, looking bewildered. Twenty-something. First job. Just like the girl he'd imagined.
+
+She was alive. She'd go home tonight. Call her parents. Complain about the inconvenience.
+
+Because someone had finally told the truth.
+
+His phone buzzed.
+
+Nikhil Rao: *Seeing the news. This is your story?*
+
+*Yes.*
+
+*I'm running a piece tomorrow. "Whistleblower Architect Forces Evacuation of Award-Winning Tower." That work for you?*
+
+Arjun thought about it. Whistleblower. The word felt strange. He hadn't blown any whistle four years ago. He'd stayed silent.
+
+*Don't call me a hero*, he typed. *I'm not. I'm the guy who waited too long to speak up. Make sure that's in the story.*
+
+A long pause.
+
+*Most people would want the hero angle.*
+
+*I'm not most people.*
+
+*Fair enough. Story runs tomorrow. Good luck, Mehra.*
+
+
+### Part VIII: Meera's Gallery
+
+That night, Meera dragged him to her studio.
+
+It was a converted warehouse in Byculla, brick walls covered with canvases in various stages of completion. Paint-splattered floors. A couch that had seen better decades. The smell of turpentine was overwhelming.
+
+"Sit," she said, pushing him toward the couch. "Drink." She handed him a beer. "Talk."
+
+He told her everything.
+
+The inspection. The damage. The evacuation. The conversation with Kapoor. The journalist's story running tomorrow.
+
+She listened, drinking her own beer, occasionally adding paint strokes to a canvas she was working on. A figure emerging from darkness. No face yet.
+
+"So," she said when he finished. "What now?"
+
+"I don't know. My career is over. Kapoor will make sure I never work in architecture again."
+
+"Good."
+
+He looked at her.
+
+"Good?"
+
+"You were a terrible architect." She grinned at his expression. "Not technically. You were brilliant technically. But you hated it. You spent eight years designing buildings you didn't care about for people you didn't respect." She added more darkness to the canvas. "Now you can do what you actually love."
+
+"Writing doesn't pay."
+
+"Neither does art. I'm still alive." She set down her brush. "Look, Arjun. You spent four years running from the worst thing you ever did. And today, you stopped running. You faced it. You made it right." She met his eyes. "That's not the end of your story. That's the beginning."
+
+He looked at the canvas. The figure was becoming clearer now. A man emerging from shadow, features still undefined.
+
+"Is that supposed to be me?"
+
+"Maybe. I haven't decided yet." She picked up her brush again. "Stay. I need a model. And you need to stop thinking for a few hours."
+
+He stayed.
+
+
+### Part IX: The Article
+
+Nikhil Rao's article dropped at 6 AM.
+
+*AWARD-WINNING ARCHITECT EXPOSES OWN NEGLIGENCE, FORCES TOWER EVACUATION*
+
+*Arjun Mehra, lead architect on the acclaimed Mehta Tower project, came forward this week with evidence that he had identified a structural flaw four years ago—and that his firm had buried the report.*
+
+*"I'm not a whistleblower," Mehra said in an interview. "I'm the guy who stayed silent for four years. The only reason I'm speaking now is because I couldn't live with myself anymore."*
+
+*The Mumbai Building Safety Authority has confirmed that the forty-seventh floor of Mehta Tower requires immediate structural reinforcement. Over 400 workers have been displaced...*
+
+Arjun read the article twice.
+
+Rao had been fair. More than fair. He'd included Arjun's confession at the London reading, his decision to come forward voluntarily, his cooperation with authorities.
+
+But he'd also included the truth: four years of silence. The bonus. The award ceremony. The complicity.
+
+It was all there. Every ugly piece.
+
+He set down his phone and looked at the mirror.
+
+"Well," he said to his reflection. "That's who you are now. How does it feel?"
+
+The reflection didn't answer.
+
+But somehow, it looked less tired than it had in years.
+
+
+### Part X: The Aftermath
+
+The next few days blurred together.
+
+Phone calls from journalists. Statements to the safety board. Lawyers calling to inform him he might be named in lawsuits. Former colleagues texting variations of "I always knew there was something wrong with you."
+
+And then, on day three, a different message.
+
+From Priya.
+
+*I saw the news. I don't know what to say. But I wanted you to know I'm thinking of you.*
+
+He stared at the message for a long time.
+
+Then he typed: *I'm not the man you left. I'm trying to be someone better.*
+
+The response came an hour later.
+
+*I know. Vidya told me about London. About what you said.*
+
+*And?*
+
+*And... I don't know, Arjun. It's complicated. You hurt me. You hurt yourself. You made choices I couldn't understand.*
+
+*I understand them now. That's the problem. Once you see yourself clearly, you can't unsee it.*
+
+Another long pause.
+
+*Can we meet? Not to fix anything. Just to talk. When things calm down.*
+
+He looked at the message.
+
+A door. Unlocked, not open.
+
+*Yes*, he typed. *I'd like that.*
+
+
+### Part XI: The Balance
+
+A week after the evacuation, the safety board released its preliminary report.
+
+The good news: the building wasn't going to collapse imminently.
+
+The bad news: the reinforcement work would take six months and cost forty crores. Mehta was furious. Kapoor was facing charges. Three engineers had been suspended pending investigation.
+
+And Arjun Mehra, lead architect, was being called both a hero and a coward in the same news cycle.
+
+He sat in his apartment, reading the coverage, trying to make sense of it.
+
+His phone rang. Unknown number.
+
+"Mr. Mehra? This is Virginia Ashworth."
+
+He almost dropped the phone.
+
+"Mrs. Ashworth. I didn't expect..."
+
+"I've been following the news from India. The tower story." Her voice was warm but precise. "I wanted to call personally."
+
+"Why?"
+
+"Because I recognized what you did. The confession in London. The choice to come forward even when it would destroy you." She paused. "That night, after you spoke at the reading, I thought: here is someone who understands that honesty is more valuable than reputation."
+
+"I'm not sure it feels that way right now."
+
+"It won't. Not for a while. But it will." She cleared her throat. "I'm calling with an offer. WordCraft is launching a fellowship program. One year, fully funded, for writers who demonstrate exceptional moral courage in their work. I'd like to offer you the inaugural position."
+
+Arjun sat very still.
+
+"A fellowship."
+
+"Housing in London. Monthly stipend. Access to our network of publishers and agents. Your only obligation would be to finish your next book."
+
+"I... I don't know what to say."
+
+"Say yes or no. I find most other responses are just delay tactics."
+
+He laughed. For the first time in days.
+
+"Then yes. Thank you. Yes."
+
+"Good. My assistant will send details." She paused. "One more thing, Mr. Mehra. Maya Chen sends her regards. She asked me to tell you that dying people have excellent instincts about character."
+
+"How is she?"
+
+"Fighting. As she does." Virginia's voice softened. "She'll be glad to know you said yes."
+
+The call ended.
+
+Arjun set down the phone and looked around his cramped apartment. The rejection letters on the desk. The crooked mirror in the bathroom. The single burner stove where he'd rationed meals during the bad months.
+
+London. A fellowship. A chance to finish his next book.
+
+And somewhere in the wreckage of his old life, a door unlocked.
+
+Not bad for a man who'd spent four years running from himself.
+
+Not bad at all.
+
+
+
+# CHAPTER SIX
+## The Fellowship
+
+
+### Part I: Departure
+
+Six weeks later, Arjun stood at Mumbai's international airport terminal, watching the departure board flicker.
+
+*London Heathrow — Boarding*
+
+His suitcase was small. One bag. He'd sold most of his furniture, given the rest to Meera. The apartment lease was up. His architecture license was under review. His bank account held exactly enough for three months of emergency expenses, assuming he didn't need to eat.
+
+None of it felt like loss.
+
+It felt like shedding.
+
+Meera had driven him to the airport in her paint-splattered Maruti. She'd hugged him at the drop-off zone, longer than usual, her voice muffled against his shoulder.
+
+"Don't become one of those expat writers who only talks about chai and monsoons," she'd said. "Write something new. Write something that scares you."
+
+"I'll try."
+
+"You'll succeed." She'd pulled back, eyes bright. "You always do. Eventually."
+
+Now he was alone with a boarding pass and a future he couldn't see clearly.
+
+His phone buzzed.
+
+Priya: *Safe travels. We'll talk when you're settled.*
+
+Then Vidya: *Don't waste this. Priya believes in you again. That's not nothing.*
+
+Then, unexpectedly, Ravi Anand: *Heard you're coming to London. Drinks when you arrive? I have stories from Virginia's basement you won't believe.*
+
+He smiled at the last one. The twenty-one-year-old prodigy, still processing his grandfather's complicated legacy. They'd exchanged numbers after the ceremony but hadn't spoken since. Now, apparently, Ravi wanted to compare notes.
+
+That might be interesting.
+
+
+### Part II: London
+
+The fellowship flat was in Bloomsbury, three blocks from the bookshop where everything had started.
+
+One bedroom. High ceilings. A desk beneath tall windows that looked out on a plane tree shedding autumn leaves. The furniture was sparse but good: a bed that didn't creak, a chair that didn't wobble, a kitchen with more than one burner.
+
+Luxury. After Mumbai.
+
+Virginia's assistant, Thomas, had left a welcome package: keys, a folder of practical information, and a handwritten note.
+
+*Mr. Mehra—*
+
+*The fellowship officially begins Monday. Until then, rest. Explore. Acclimate.*
+
+*Mrs. Ashworth asks that you call her office when you're settled. She has something to discuss.*
+
+*— Thomas*
+
+He set down the note and looked around the empty flat.
+
+One year. No obligations except to write.
+
+He should have felt elated. Instead, he felt something closer to terror.
+
+What if he had nothing left to say?
+
+
+### Part III: The First Week
+
+The fear lasted three days.
+
+On day one, he walked. Bloomsbury squares, the British Museum, streets that appeared in books he'd read as a teenager. He bought a notebook from a shop on Charing Cross Road, leather-bound, not unlike his grandfather's.
+
+On day two, he sat at the desk and stared at the blank page. Wrote nothing. Felt like a fraud.
+
+On day three, he called Meera.
+
+"I can't write," he said.
+
+"You've been there forty-eight hours."
+
+"I know. But the words aren't coming. It's like the part of me that could write got burned up in Mehta Tower and there's nothing left."
+
+Meera was quiet for a moment.
+
+"Do you remember what you told me, back at Pauses? Right after you finished the first draft of *The Last Light*?"
+
+"No."
+
+"You said: 'I don't know if it's good. But it's honest. That has to be worth something.'" She paused. "You didn't care about writing well then. You cared about writing *truly*. Maybe that's what you need to remember."
+
+"What if I don't know what's true anymore?"
+
+"Then figure it out. That's what the year is for."
+
+He hung up. Looked at the blank page.
+
+Then he started writing about Mehta Tower. Not fiction. Just the truth, as plainly as he could tell it.
+
+The words came slowly. But they came.
+
+
+### Part IV: Virginia
+
+A week after his arrival, Arjun met Virginia Ashworth for tea.
+
+Not at her grand residence, but at a small café in Hampstead, where the windows were steamed and the tourists hadn't discovered it yet.
+
+She looked different outside her formal context. Smaller. More tired. The armor she'd worn during the competition was absent.
+
+"You're settling in?" she asked, stirring her tea.
+
+"Trying to. It's strange, having time."
+
+"Time is the hardest resource to use well. Most people waste it." She sipped. "How's the writing?"
+
+"Slow. Painful. I'm writing about Mehta Tower."
+
+"The truth rather than fiction?"
+
+"I don't know if I have fiction in me right now. The truth is more than enough."
+
+Virginia nodded. Her eyes were distant for a moment.
+
+"I've been writing something too. Since the competition ended." She set down her cup. "A memoir. About the early years. Vikram Sengupta. Edgar Whitmore. All of it."
+
+Arjun stared.
+
+"You're confessing?"
+
+"I'm explaining. Which may be worse." She smiled thinly. "Confessions ask for forgiveness. Explanations just ask to be understood. I'm not sure I deserve either."
+
+"What changed?"
+
+"Nandini. The photograph. The conversation we had before the ceremony." She looked out the window, rain beginning to streak the glass. "For forty years, I told myself stories about what happened. Comfortable stories. Whitmore was responsible, not me. I didn't know. I couldn't have known."
+
+"And now?"
+
+"Now I think the truth is messier. I didn't know the specifics. But I chose not to ask questions. I chose comfort over clarity." She turned back to him. "Sound familiar?"
+
+Arjun was quiet for a long moment.
+
+"Yes."
+
+"We're more alike than you might think, Mr. Mehra. Both of us built lives on foundations we weren't sure were solid. Both of us avoided the inspections that might have revealed the cracks." She picked up her cup again. "The difference is you're thirty-two. You have time to build something new. I'm seventy-three. All I can do is document what went wrong."
+
+"That's not nothing."
+
+"No. It's not." She finished her tea. "I wanted to tell you in person. Because the memoir will mention you. The reading. The confession. What you did at Mehta Tower."
+
+"What will you say?"
+
+"The truth. That a young man stood up in front of strangers and admitted his worst failure, and in doing so, reminded an old woman that honesty is still possible." She stood, gathering her coat. "I thought you should know before it's published. In case you want to object."
+
+"I don't object."
+
+"Good." She paused at the table. "One more thing. Sanjay Kulkarni called me last week. Vikram's lawyer. The man behind the V letters."
+
+Arjun's pulse quickened.
+
+"What did he want?"
+
+"To meet. After thirty years of sending me anonymous threats, he wanted to look me in the eye." She smiled, a complicated expression. "We're having dinner next Tuesday. Would you like to come?"
+
+
+### Part V: Kulkarni
+
+The restaurant was in Mayfair, the kind of place with white tablecloths and waiters who remembered your preferences from visits three years ago.
+
+Sanjay Kulkarni was not what Arjun expected. Small, neat, gray-haired, with the meticulous appearance of a man who organized his closet by color. He looked like an accountant, not an orchestrator of elaborate posthumous revenge systems.
+
+"Mr. Mehra." Kulkarni stood as Arjun approached. "I've heard a great deal about you."
+
+"You sent me letters accusing me of complicity in structural negligence."
+
+"I did. And I was right, wasn't I?" Kulkarni's smile was mild. "Please, sit. Virginia will be along shortly."
+
+Arjun sat. A waiter appeared with water. The restaurant hummed with expensive conversation.
+
+"Why now?" Arjun asked. "You could have sent those letters years ago. Why wait for the competition?"
+
+"Because the competition brought everyone together." Kulkarni straightened his napkin with precise movements. "Vikram's plan was never about individual destruction. He wanted a reckoning. All the threads, gathered in one place, at one time. He believed that only collective truth-telling could lead to collective healing."
+
+"That's very optimistic for a man who spent thirty years building a revenge system."
+
+"Vikram was complicated." Kulkarni's expression softened. "He was angry, yes. But he wasn't cruel. He wanted Virginia to face what she'd allowed to happen. He wanted his sister to stop fighting alone. He wanted anyone touched by this history to understand how the pieces connected."
+
+"And what did he want from me?"
+
+"From you specifically? Nothing." Kulkarni met his eyes. "You were a variable we discovered later. The Mehta Tower documents came to my attention through a legal colleague two years ago. When I saw you'd entered Virginia's competition, I added you to the system."
+
+"So I was convenient."
+
+"You were relevant. There's a difference." He paused. "And you exceeded expectations. The confession at the reading. The call to the safety board. These weren't things we could have planned. You made your own choices."
+
+Virginia arrived then, apologizing for the traffic, settling into her chair with the grace of someone who'd done it a thousand times.
+
+The dinner that followed was surreal.
+
+Three people who should have hated each other, sharing a meal, discussing the architecture of a thirty-year deception as if it were just another business matter.
+
+Kulkarni explained the technical details of the automated system. Virginia asked questions about her own history. Arjun listened, trying to understand how obsession could become institution, how grief could transform into infrastructure.
+
+By the time dessert arrived, something had shifted in the room.
+
+Not forgiveness. Not resolution.
+
+But acknowledgment. Of complexity. Of participation. Of the impossibility of sorting everyone into heroes and villains.
+
+"What happens now?" Arjun asked. "The system. The letters. Is it over?"
+
+Kulkarni considered the question.
+
+"The system will continue until its conditions are met. But most of them have been now. The truth about Whitmore is public. Virginia is writing her memoir. Nandini has found something like peace." He paused. "There are a few remaining triggers. Minor ones. But the major work is done."
+
+"And you?"
+
+"I'm seventy-one years old. I've spent half my life on another man's unfinished business." Kulkarni smiled. "It's time to start my own. I'm writing a book about Vikram. The real man, not the legend. His brilliance and his blindness. His love and his obsession."
+
+"Another truth-teller joins the fellowship," Virginia said dryly.
+
+"Perhaps that's what truth requires," Kulkarni replied. "A fellowship. A community of people willing to look clearly, even when it hurts."
+
+Arjun thought about that as they finished their coffee.
+
+A fellowship of truth-tellers.
+
+Maybe that was what this strange year was really about.
+
+
+### Part VI: Ravi
+
+The next week, Arjun met Ravi Anand at a pub in Shoreditch.
+
+The prodigy looked different. Older, somehow, though only two months had passed. The arrogant grin was still there, but softer. More uncertain.
+
+"So," Ravi said, sliding a pint across the table. "Virginia's basement."
+
+"You mentioned you found something."
+
+"My grandfather's entire story was wrong." Ravi drank deeply. "Thirty years of family mythology, destroyed in one afternoon of file reading."
+
+"How are you handling it?"
+
+"Badly." He laughed, bitter. "I wrote a whole book about inherited rage. About the weight of family grievance. And now I find out the grievance was based on lies, or at least incomplete truths."
+
+"What are you going to do?"
+
+"Rewrite. Maybe." He stared into his beer. "The book still works as fiction. The emotions are real, even if the facts aren't. But it feels... hollow now. Like I was fighting a ghost that someone else invented."
+
+"Maybe that's the point," Arjun said slowly. "Maybe the book was always about the weight of other people's stories. The way they trap us even when they're not true."
+
+Ravi looked up. His expression was unreadable.
+
+"You're annoyingly wise for someone who just blew up his own career."
+
+"I'm making it up as I go."
+
+"Same." Ravi finished his pint, flagged for another. "My father won't talk to me. I told him what I found, thought he'd want to know the truth. Instead he called me a traitor. Said I was dishonoring my grandfather's memory."
+
+"He's protecting his story."
+
+"His story is a lie."
+
+"Most stories are." Arjun thought about his own father, the phone call after his resignation, the disappointed silence that had lasted for months. "Families run on comfortable fictions. When you expose them, it feels like betrayal."
+
+"So what do I do? Pretend I don't know?"
+
+"No. You write the truth and let your father decide what to do with it." Arjun met his eyes. "That's what I learned from Mehta Tower. The only thing worse than painful truth is comfortable silence. Eventually, the silence becomes louder than anything you could have said."
+
+Ravi was quiet for a long moment.
+
+"You really believe that?"
+
+"I'm trying to." Arjun smiled. "Some days are better than others."
+
+
+### Part VII: The Writing
+
+October faded into November. The plane tree outside Arjun's window shed its leaves until nothing remained but black branches against gray sky.
+
+He wrote every day.
+
+Not the novel he'd planned, not *The Last Light 2*, but something else. A hybrid thing. Part memoir, part meditation, part reckoning.
+
+About Mehta Tower. About the crack on the forty-seventh floor. About Kapoor and Deshpande and the girl who walked to work every morning not knowing what waited above her.
+
+About his grandfather and the leather notebook. About Priya and the ring on the kitchen counter. About Meera at Pauses, telling him his book was necessary, not good.
+
+About London. Virginia Ashworth. Maya Chen and her sketchbooks filled with evidence. Dr. Iyer drinking whiskey with her brother's destroyer. Ravi Anand finding his grandfather's real story in a dusty basement.
+
+About truth. What it cost. What it gave.
+
+The pages accumulated. Slowly at first, then faster. The fear that had gripped him those first days loosened, replaced by something like purpose.
+
+He wasn't writing to win prizes. He wasn't writing to impress publishers. He was writing to understand.
+
+And understanding, he was discovering, was its own kind of reward.
+
+
+### Part VIII: Maya
+
+In mid-November, Virginia called with news.
+
+"Maya Chen passed away last night."
+
+Arjun sat heavily on the edge of his bed. The phone felt cold against his ear.
+
+"She'd been holding on longer than the doctors expected," Virginia continued. "But the body has limits."
+
+"Was she... was it peaceful?"
+
+"She was in hospice. Her family was with her. She'd finished revising her book two weeks ago." Virginia's voice was steady, but something underneath wavered. "She asked me to tell you something. In case you weren't there."
+
+"What?"
+
+"She said: 'The imperfect ones are the most real. Tell him I saw who he was. And I approved.'"
+
+Arjun closed his eyes.
+
+Maya, sketching on a napkin while they plotted in the library. Maya, wheeling herself to the microphone despite the chair they'd provided. Maya, offering advice with the clarity that only comes from knowing time is short.
+
+"There's a memorial next month," Virginia said. "London. Her family asked if the finalists would attend. I'll send details."
+
+"I'll be there."
+
+He hung up.
+
+The flat was very quiet. Outside, rain began to fall.
+
+He sat at his desk and opened a new document.
+
+*In Memory of Maya Chen*
+
+*The clearest eyes in every room*
+
+*Who taught us that truth isn't cruel*
+
+*It's just the opposite of hiding*
+
+He wrote until the words ran out. Then he saved the file and stared at the gray sky.
+
+Dying people have excellent instincts about character.
+
+He hoped she'd been right about his.
+
+
+### Part IX: The Memorial
+
+The memorial was held at the same arts center where the competition had been announced.
+
+Fifty people, maybe fewer. Maya's family in the front row: a mother, a father, two siblings who looked shell-shocked by loss. Virginia Ashworth in dark gray. Dr. Iyer with her cane. Ravi Anand slouching in a back corner.
+
+And Vidya.
+
+Arjun saw her as he entered. She was standing by a window, watching rain streak the glass, her profile sharp against the gray light.
+
+"Vidya."
+
+She turned. Her expression was unreadable.
+
+"Arjun. I didn't know if you'd come."
+
+"I said I would."
+
+"So you did." She looked back toward the window. "Priya wanted to be here. Couldn't get the time off work. She sent flowers."
+
+"That's kind of her."
+
+"She's kind. You know that." Vidya turned to face him fully. "We talk now. More than we used to. She tells me things."
+
+"What kinds of things?"
+
+"That she's been reading your book. *The Last Light*. She found a copy somewhere." Vidya paused. "She said it made her cry. Not because it was sad, but because she finally understood what you were trying to say. Who you were trying to become."
+
+Arjun didn't know what to say to that.
+
+"We're not getting back together," Vidya added. "If that's what you're hoping. She's not ready. You're not ready. Maybe neither of you ever will be."
+
+"I know."
+
+"But she doesn't hate you anymore. That's something." Vidya picked up her coat. "I don't hate you either. For what it's worth."
+
+"That's worth a lot."
+
+She almost smiled. Almost.
+
+"Write something good, Arjun. Something that makes all this mess worth having lived through."
+
+She walked away. The memorial began.
+
+
+Maya's mother spoke first. Then her brother. Then a friend from university, who told a story about Maya staying up for three days straight to finish a painting for an exhibition, fueled by nothing but coffee and spite.
+
+Virginia spoke last.
+
+"Maya Chen saw the world more clearly than most of us dare to. She didn't have time for comfortable lies. She didn't have patience for self-deception. And she didn't pretend that the ugliness of life negated its beauty."
+
+She paused, looking at the photograph on the easel. Maya, laughing, paintbrush in hand.
+
+"She told me once that dying was the best thing that ever happened to her. Because it forced her to stop wasting time on things that didn't matter. To say what she meant. To love without qualification."
+
+Virginia's voice cracked slightly.
+
+"Most of us learn this too late, if we learn it at all. Maya learned it at twenty-five. And she spent her remaining time trying to teach the rest of us."
+
+The room was silent.
+
+"She'd hate this eulogy," Virginia added. "She'd say it was too sentimental. She'd tell me to shut up and let people go home." A sad smile crossed her face. "So that's what I'll do. Go home. Remember her. Try to be worthy of what she taught us."
+
+The memorial ended. People dispersed. Arjun found himself standing before Maya's photograph, trying to memorize her face.
+
+The imperfect ones are the most real.
+
+He would try to remember that.
+
+He would try to live it.
+
+
+### Part X: December
+
+The year turned toward its end.
+
+Arjun's manuscript grew to two hundred pages. Then three hundred. The hybrid thing had found its shape: part memoir, part essay, part reckoning. He didn't know what to call it. He didn't know if anyone would publish it.
+
+He didn't care.
+
+On Christmas Eve, he walked through empty London streets. Lights in windows. The occasional burst of carol music from a pub. Snow beginning to fall, soft and uncertain.
+
+His phone buzzed.
+
+Meera: *Merry Christmas, you exile. Come back soon. The aunty network misses you.*
+
+Then his mother: *We saw the article about the fellowship. Your father says he's proud. He won't say it to you, but he told me. Call us when you can.*
+
+Then, unexpectedly, Priya: *Read your book today. The whole thing, start to finish. I understand now. Not everything. But enough.*
+
+He stared at the last message for a long time.
+
+Then he sat on a bench in Russell Square, snow dusting his shoulders, and called her.
+
+"Priya."
+
+"Arjun." She sounded the same. Different. Both. "I wasn't sure you'd call."
+
+"You texted."
+
+"I know. I wasn't expecting a response." She paused. "How's London?"
+
+"Cold. Beautiful. Lonely sometimes."
+
+"Writing?"
+
+"Every day. Something new. Something honest."
+
+"Good." Another pause. "Arjun, I didn't text to... I'm not trying to restart anything. I just wanted you to know that I read *The Last Light*. And I finally understood what happened to you. Why you disappeared. Why you couldn't tell me."
+
+"I should have told you."
+
+"Yes. You should have." Her voice was calm. "But I also should have pushed harder. Asked better questions. Not walked away when things got difficult."
+
+"We both failed."
+
+"We both did what scared people do." She laughed softly. "Maybe that's just being human."
+
+"Maybe."
+
+Silence. Snow fell. Somewhere, a church bell rang.
+
+"I'm glad you called," Priya said finally. "I'm glad we're talking."
+
+"Me too."
+
+"Merry Christmas, Arjun."
+
+"Merry Christmas, Priya."
+
+He hung up. Sat in the falling snow, feeling something he couldn't name.
+
+Not joy. Not sadness. Not resolution.
+
+Something quieter. Something that felt like peace.
+
+The first he'd known in a very long time.
