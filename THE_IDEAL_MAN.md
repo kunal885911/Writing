@@ -1,16 +1,14 @@
 # THE IDEAL MAN
 ## *A Story of the One Who Believed*
 
----
 
 # CHAPTER ONE
 ## The Man in the Mirror
 
----
 
 ### Part I: Tuesday
 
-The bathroom tiles were cold against Arjun Mehra's spine. He'd been sitting there since 3 AM—four hours now—watching the crooked mirror across from him fog and clear with each breath.
+The bathroom tiles were cold against Arjun Mehra's spine. He'd been sitting there since 3 AM, four hours now, watching the crooked mirror across from him fog and clear with each breath.
 
 Seven rejection letters lay scattered around him like dead leaves.
 
@@ -32,13 +30,12 @@ The words hung in the stale air.
 
 Then, quieter: "Do *you*?"
 
----
 
 ### Part II: Three Months Earlier
 
 The resignation letter sat on Mr. Kapoor's mahogany desk like a grenade with the pin pulled.
 
-"Partner track." Mr. Kapoor tapped the desk—a desk Arjun had designed three years ago. "You understand what you're throwing away?"
+"Partner track." Mr. Kapoor tapped the desk, the same desk Arjun had designed three years ago. "You understand what you're throwing away?"
 
 "I do."
 
@@ -60,9 +57,8 @@ He was at the elevator when Kapoor's voice caught him.
 
 The elevator doors closed on the old man's pitying smile.
 
----
 
-What Kapoor didn't know—what no one knew—was that Arjun had spent every night for three years writing in a leather notebook his grandfather had given him.
+What Kapoor didn't know, what no one knew, was that Arjun had spent every night for three years writing in a leather notebook his grandfather had given him.
 
 Not blueprints. Not specifications.
 
@@ -74,7 +70,6 @@ He'd told no one about it. Not his colleagues. Not Priya. Not even his parents.
 
 Some things you protect until they're strong enough to survive the world.
 
----
 
 ### Part III: The Cost
 
@@ -96,7 +91,6 @@ His savings would last another three months. Maybe four if he stopped eating lun
 
 He kept writing.
 
----
 
 ### Part IV: What He Knew
 
@@ -116,23 +110,22 @@ When pride tempted him to dismiss criticism, he forced himself to sit with feedb
 
 When fear told him to quit, he made a rule: write one sentence. Just one. The rest usually followed.
 
-He mapped his failures like an architect maps unstable ground—not to avoid them, but to build around them.
+He mapped his failures like an architect maps unstable ground, not to avoid them, but to build around them.
 
 This wasn't ego. Ego would've told him he was better than others.
 
 He wasn't better. He was just *awake* to who he actually was.
 
----
 
 ### Part V: The Memory
 
 On that bathroom floor, Arjun closed his eyes and saw his grandfather's face.
 
-The old man had been a poet. Published exactly zero times in seventy-three years of writing. His final years were spent in a small room wallpapered with rejection letters—he'd framed them like trophies.
+The old man had been a poet. Published exactly zero times in seventy-three years of writing. His final years were spent in a small room wallpapered with rejection letters. He'd framed them like trophies.
 
 "Aren't you angry?" Arjun had asked him once. He was fourteen. "All those years, and nobody cared."
 
-His grandfather had laughed—a dry, papery sound.
+His grandfather had laughed, a dry, papery sound.
 
 "Angry at who? The publishers? They're doing their job." He'd tapped his chest. "I wrote for the man in here. Nobody else gets a vote."
 
@@ -146,13 +139,12 @@ He stood up. Collected the rejection letters. Walked to his desk.
 
 And typed.
 
----
 
 ### Part VI: Meera
 
 "You look like hammered garbage."
 
-Arjun looked up from his laptop. The coffee shop was called "Pauses"—a cramped space wedged between a laundromat and a hardware store. He'd chosen it because nobody he knew would find him here.
+Arjun looked up from his laptop. The coffee shop was called "Pauses," a cramped space wedged between a laundromat and a hardware store. He'd chosen it because nobody he knew would find him here.
 
 Meera Rao dropped into the chair across from him. Paint-stained overalls. Blue smear on her cheek. The same chaotic presence she'd been since their first day of architecture school.
 
@@ -168,7 +160,7 @@ He'd told her about it once, years ago. Drunk at her gallery opening. He'd regre
 
 "Let me read it."
 
-"Meera—"
+"Meera..."
 
 "You've got nothing to lose. Seven rejections, right? What's one more?"
 
@@ -176,7 +168,6 @@ She'd always known how to corner him.
 
 He turned the laptop toward her.
 
----
 
 Two hours later, Meera was still reading. Her coffee sat untouched, skin forming on the surface.
 
@@ -204,17 +195,16 @@ She was quiet for a long moment.
 
 "I'll float you two months' rent."
 
-"I can't—"
+"I can't..."
 
 "You can, and you will." She stood. "Finish this thing. Then we'll figure out how to make them see it."
 
----
 
 ### Part VII: The Price of Belief
 
 That night, Arjun wrote until his vision blurred.
 
-Not the novel—that was done. He wrote in his grandfather's journal:
+Not the novel, that was done. He wrote in his grandfather's journal:
 
 *Belief isn't a feeling. It's a practice.*
 
@@ -222,13 +212,12 @@ Not the novel—that was done. He wrote in his grandfather's journal:
 
 *Small choices. Invisible to everyone but me.*
 
-*This is what people miss about self-belief. They think it's confidence. It's not. Confidence is about what you can do. Belief is about who you are when you can't do anything—when the evidence is against you, when the numbers don't add up, when everyone you respect thinks you've lost your mind.*
+*This is what people miss about self-belief. They think it's confidence. It's not. Confidence is about what you can do. Belief is about who you are when you can't do anything, when the evidence is against you, when the numbers don't add up, when everyone you respect thinks you've lost your mind.*
 
 *I might be wrong about this book. I might be delusional. History is full of confident failures.*
 
 *But I'd rather be wrong while being fully myself than right while being a hollow copy of someone else.*
 
----
 
 ### Part VIII: The Letter
 
@@ -260,7 +249,6 @@ Then he called Meera.
 
 It was. More than he could say.
 
----
 
 But that night, a different letter arrived. No stamp. Slipped under his door.
 
@@ -274,11 +262,11 @@ Inside, a single page:
 
 *London should be interesting.*
 
-*—V*
+*V*
 
 Arjun's hands went cold.
 
-Mehta Tower. Four years ago. A structural flaw he'd spotted late in construction—one that would have cost millions to fix and ended careers. He'd flagged it to Kapoor. Kapoor had made it disappear.
+Mehta Tower. Four years ago. A structural flaw he'd spotted late in construction, one that would have cost millions to fix and ended careers. He'd flagged it to Kapoor. Kapoor had made it disappear.
 
 *"These things happen,"* Kapoor had said. *"The margins are within tolerance. Don't be naive."*
 
@@ -292,7 +280,6 @@ Someone who signed their notes with *V*.
 
 Someone who would be in London.
 
----
 
 ### Part IX: The Mirror
 
@@ -312,7 +299,7 @@ What would that man do?
 
 The answer was simple. And terrible.
 
-Go to London. Face whoever was waiting. Tell the truth—about Mehta Tower, about his own complicity—even if it destroyed everything.
+Go to London. Face whoever was waiting. Tell the truth about Mehta Tower, about his own complicity, even if it destroyed everything.
 
 Because an ideal man wasn't someone without cracks.
 
@@ -322,14 +309,6 @@ He picked up his phone. Booked the flights.
 
 London in six days.
 
----
+Four other writers would be there. Four strangers competing for the same prize.
 
-### End of Chapter One
-
----
-
-*Next: Five finalists. One prize. And a ghost from Arjun's past who holds a secret that could end his career before it begins. Among the other four competitors: a child prodigy, a disgraced professor, a dying woman racing deadlines, and someone Arjun thought he'd never see again.*
-
-*Chapter Two: "The Other Four"*
-
----
+And one of them knew his secret.
