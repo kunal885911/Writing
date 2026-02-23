@@ -1,183 +1,12 @@
-
----
-
-[BLANK PAGE]
-
----
+# THE IDEAL MAN
+## *A Story of the One Who Believed*
 
 
-
-                              THE IDEAL MAN
-
-
-
----
-
-[BLANK PAGE]
-
----
+# CHAPTER ONE
+## The Man in the Mirror
 
 
-
-                              THE IDEAL MAN
-
-                    A Story of the One Who Believed
-
-
-
-                                  by
-
-
-                             Kunal Meena
-
-
-
----
-
-[COPYRIGHT PAGE]
-
-Copyright © 2026 by Kunal Meena
-
-All rights reserved. No part of this book may be reproduced or used in any manner without written permission of the copyright owner except for the use of quotations in book reviews.
-
-This is a work of fiction. Names, characters, places, and incidents are products of the author's imagination or are used fictitiously. Any resemblance to actual persons, living or dead, events, or locales is entirely coincidental.
-
-First Edition: 2026
-
-Published by Kunal Meena
-[Self-Published]
-
-For permissions or inquiries:
-Email: kunalmeena1311@gmail.com
-
-Cover design and
-Interior design by Kunal Meena
-
----
-
-
-
-                         For those who stayed, and for those who left, and for everything they taught me.
-
-
-
----
-
-[BLANK PAGE]
-
----
-
-
-                              CONTENTS
-
-
-Chapter One: The Man in the Mirror
-     Part I: Tuesday
-     Part II: Three Months Earlier
-     Part III: The Cost
-     Part IV: What He Knew
-     Part V: The Memory
-     Part VI: Meera
-     Part VII: The Price of Belief
-     Part VIII: The Letter
-     Part IX: The Mirror
-
-Chapter Two: The Other Four
-     Part I: Heathrow
-     Part II: The Prodigy
-     Part III: The Professor
-     Part IV: The First Move
-     Part V: Dinner
-     Part VI: The Roof
-     Part VII: The First Reading
-     Part VIII: Virginia
-     Part IX: Maya
-     Part X: The Third Letter
-
-Chapter Three: The Game Behind the Game
-     Part I: 4 AM
-     Part II: Confrontation
-     Part III: Vidya, Alone
-     Part IV: The Prodigy's Secret
-     Part V: The Pattern
-     Part VI: The Alliance
-     Part VII: The Revelation
-     Part VIII: The Dead
-     Part IX: The Test
-     Part X: The Choice
-     Part XI: The Night Before
-
-Chapter Four: The Ceremony
-     Part I: Morning
-     Part II: Breakfast
-     Part III: The Afternoon
-     Part IV: The Call
-     Part V: The Dress Rehearsal
-     Part VI: The Study
-     Part VII: The Ceremony
-     Part VIII: The Reading
-     Part IX: The Winner
-     Part X: After
-     Part XI: Midnight
-
-Chapter Five: Coming Home
-     Part I: The Flight
-     Part II: Meera
-     Part III: The Apartment
-     Part IV: The Board
-     Part V: The Call
-     Part VI: The Inspection
-     Part VII: The Evacuation
-     Part VIII: Meera's Gallery
-     Part IX: The Article
-     Part X: The Aftermath
-     Part XI: The Balance
-
-Chapter Six: The Fellowship
-     Part I: Departure
-     Part II: London
-     Part III: The First Week
-     Part IV: Virginia
-     Part V: The Dinner
-     Part VI: The Writing
-     Part VII: Maya
-     Part VIII: The Memorial
-     Part IX: December
-
-Chapter Seven: The Return
-     Part I: January
-     Part II: Repercussions
-     Part III: The Manuscript
-     Part IV: The Conversation
-     Part V: Priya
-
-Chapter Eight: The Publication
-     Part I: Before
-     Part II: The Response
-     Part III: The Return
-
-Chapter Nine: The Man in the Mirror
-     Part I: Spring
-     Part II: The Call
-     Part III: The Man
-     Part IV: Home
-
-
----
-
-[BLANK PAGE]
-
----
-
-
-
-[CHAPTER ONE]
-[The Man in the Mirror]
-
-
-
-[Part I: Tuesday]
-
+### Part I: Tuesday
 
 The bathroom tiles were cold against Arjun Mehra's spine. He'd been sitting there since 3 AM, four hours now, watching the crooked mirror across from him fog and clear with each breath.
 
@@ -202,9 +31,7 @@ The words hung in the stale air.
 Then, quieter: "Do *you*?"
 
 
-
-[Part II: Three Months Earlier]
-
+### Part II: Three Months Earlier
 
 The resignation letter sat on Mr. Kapoor's mahogany desk like a grenade with the pin pulled.
 
@@ -244,97 +71,57 @@ He'd told no one about it. Not his colleagues. Not Priya. Not even his parents.
 Some things you protect until they're strong enough to survive the world.
 
 
-
-[Part III: The Cost]
-
+### Part III: The Cost
 
 Sunday after the resignation: His father called. "You've embarrassed this family. Don't contact us until you've fixed this."
 
 The line went dead.
 
-Arjun sat on his kitchen floor for an hour after that call. Not crying. Just sitting. Thinking about the time he was eight and his father had taken him to the office on a Saturday. Let him sit at the big desk. Let him pretend to sign papers. "Someday," his father had said, "you'll have a desk like this."
-
-His father had said a lot of things when Arjun was eight.
-
-When Arjun was twelve, his father had an affair. Everyone knew. No one talked about it. His mother set the table for dinner every night and asked about school and never once mentioned the lipstick on his collar, the late nights, the smell of someone else's perfume.
-
-Arjun had learned about silence from both of them. Had learned that you could love someone and also want to hurt them. Had learned that families are just groups of people who've agreed not to name the things they see.
-
-"You've embarrassed this family," his father had said.
-
-As if embarrassment was the worst thing. As if he hadn't learned from the master.
-
-He never told anyone about the affair. Not Priya. Not Meera. It felt like betrayal, even now. The family keeping the family's secrets, even when the family couldn't stand each other.
-
-Monday: Priya set the ring on his kitchen counter. She didn't cry. He wished she had.
+Monday: Priya set the ring on his kitchen counter. She didn't cry. That was worse.
 
 "I loved the man who was going somewhere," she said. "I don't know who this is."
-
-He almost asked her to stay. He almost begged. Instead he said, "Do you want the blender back?"
-
-She left without answering.
-
-What he didn't know then: she'd spent the night before calling her mother. Asking if she could come home. Her mother had said no, you made your choice, you deal with it. Priya had grown up in that house, had learned early that asking for help was weakness, that you solved your own problems or you didn't solve them at all.
-
-She'd come to his apartment that Monday morning still hoping he'd give her a reason to stay. The blender comment was the door closing.
-
-He wouldn't learn any of this until much later. Until it was too late to matter.
 
 Tuesday: The first rejection letter arrived.
 
 Wednesday through the following month: Six more.
 
-He sold his car. Moved to a smaller apartment. The new place had a water stain on the ceiling that looked like a question mark. He started talking to it.
+He sold his car. Moved to a smaller apartment. Stopped answering calls. Started rationing meals.
 
-Stopped answering calls. Started rationing meals. Ate a lot of eggs.
-
-His savings would last another three months. Maybe four if he skipped lunch.
+His savings would last another three months. Maybe four if he stopped eating lunch.
 
 He kept writing.
 
 
-
-[Part IV: What He Knew]
-
+### Part IV: What He Knew
 
 Here's what Arjun understood about himself:
 
 He was not special.
 
-He couldn't write a perfect sentence on the first try. He got jealous when friends succeeded. He procrastinated. He ate too much when stressed and not enough when he should have been eating.
-
-When Priya's father was dying, Arjun had resented the hospital visits. He'd sat in that room thinking about deadlines. About the project he should have been working on. He'd held her hand and looked at his watch.
-
-He'd never told her that. Never told anyone. Some things you carry alone because saying them would make you a person you couldn't live with.
+He couldn't write a perfect sentence on the first try. He got jealous when friends succeeded. He procrastinated. He ate too much when stressed. He'd once stolen a pen from a coworker and never confessed.
 
 Ordinary flaws. Ordinary man.
 
-He'd learned something, though he wasn't sure it was wisdom: *you can't fix what you won't name.*
+But he'd learned something that changed everything: *knowing your weaknesses precisely is its own kind of strength.*
 
-So he named things.
+When impatience pushed him to submit early, he built a mandatory three-day waiting period into his process.
 
-Impatience: he submitted early anyway, then regretted it, then made himself wait three days the next time.
+When pride tempted him to dismiss criticism, he forced himself to sit with feedback for twenty-four hours before responding.
 
-Pride: he dismissed criticism, then lay awake at night remembering every word, then forced himself to sit with feedback before responding. Sometimes it worked. Sometimes he just got defensive in a more polite tone.
+When fear told him to quit, he made a rule: write one sentence. Just one. The rest usually followed.
 
-Fear: he made a rule. Write one sentence. Just one. Some days the rest followed. Some days it was just the one sentence, and he went to bed feeling like a fraud.
+He mapped his failures like an architect maps unstable ground, not to avoid them, but to build around them.
 
-He mapped his failures. But maps aren't the territory. Knowing you're prone to something doesn't mean you stop doing it.
+This wasn't ego. Ego would've told him he was better than others.
 
-He wasn't better than anyone. He was just paying attention. On good days.
+He wasn't better. He was just *awake* to who he actually was.
 
 
-
-[Part V: The Memory]
-
+### Part V: The Memory
 
 On that bathroom floor, Arjun closed his eyes and saw his grandfather's face.
 
 The old man had been a poet. Published exactly zero times in seventy-three years of writing. His final years were spent in a small room wallpapered with rejection letters. He'd framed them like trophies.
-
-Arjun had hated visiting that room. It smelled like old paper and something else, something sour. His grandfather would read aloud for hours, and even as a child Arjun knew some of the poems weren't good. Repetitive. Self-indulgent. The kind of writing that circles the same wound without ever reaching it.
-
-But he'd never said that. Not even to himself, until now.
 
 "Aren't you angry?" Arjun had asked him once. He was fourteen. "All those years, and nobody cared."
 
@@ -342,50 +129,30 @@ His grandfather had laughed, a dry, papery sound.
 
 "Angry at who? The publishers? They're doing their job." He'd tapped his chest. "I wrote for the man in here. Nobody else gets a vote."
 
-Easy to say when you had a pension, Arjun thought now. Easy to be noble when you weren't selling your car to make rent.
-
 Three days before he died, he'd pressed the leather notebook into Arjun's hands.
 
 "Fill this," he'd said. "Not for them. For *you*."
 
-Arjun had taken it. Had smiled. Had already been thinking about the funeral costs.
-
-Maybe that was the real inheritance: not the notebook, but the guilt of receiving it while thinking about money.
+On the bathroom floor, eighteen years later, Arjun opened his eyes.
 
 He stood up. Collected the rejection letters. Walked to his desk.
 
 And typed.
 
 
-
-[Part VI: Meera]
-
+### Part VI: Meera
 
 "You look like hammered garbage."
 
-Arjun looked up from his laptop. The coffee shop was called "Pauses," a cramped space wedged between a laundromat and a hardware store. The ceiling had a water stain shaped like India. Someone had left a sock on the counter three days ago and it was still there. Arjun had started to feel protective of it.
+Arjun looked up from his laptop. The coffee shop was called "Pauses," a cramped space wedged between a laundromat and a hardware store. He'd chosen it because nobody he knew would find him here.
 
-Meera Rao dropped into the chair across from him. Paint-stained overalls. Blue smear on her cheek. She smelled like turpentine and the subway. She looked worse than he did, though he knew better than to say so.
+Meera Rao dropped into the chair across from him. Paint-stained overalls. Blue smear on her cheek. The same chaotic presence she'd been since their first day of architecture school.
 
 "Your mother called my mother," she said. "The aunty network is concerned."
 
 "Tell them I'm fine."
 
-"You're clearly not fine. But that's not why I'm here." She nodded at the laptop.
-
-"Coffee first?"
-
-"Can't stay long. I'm supposed to be at the hospital."
-
-Arjun looked up. "What happened?"
-
-"My sister. Same thing as last month. She won't leave him, so." Meera's jaw tightened. "I keep showing up. She keeps going back. I've stopped expecting a different ending."
-
-She said it flatly, the way you say things you've said too many times.
-
-"I'm sorry."
-
-"Don't be. It's not your problem." She nodded at the laptop again. "Is that the book?"
+"You're clearly not fine. But that's not why I'm here." She nodded at the laptop. "Is that the book?"
 
 He'd told her about it once, years ago. Drunk at her gallery opening. He'd regretted it immediately.
 
@@ -418,11 +185,7 @@ Finally, she looked up.
 
 She was quiet for a long moment.
 
-"I don't know," she said. "Parts of it are messy. Chapter twelve drags. And that line about grief being a house" she made a face "too much."
-
-"But?"
-
-"But I couldn't stop reading. I wanted to know what happened next. I cared about someone who isn't real." She shrugged. "That's the whole game, isn't it?"
+"It's not good," she said. "It's necessary. Those are different things. Good gets published. Necessary changes people."
 
 "Seven editors disagree."
 
@@ -434,29 +197,15 @@ She was quiet for a long moment.
 
 "I can't..."
 
-"You can, and you will." She stood. She looked at her phone. "I have to go. She's texting."
-
-"The hospital?"
-
-"She left again. She's at my place." Meera was already half-turned toward the door. "This time it's different, she says. It's always different."
-
-Arjun didn't know what to say. He'd met Meera's sister once, at a family dinner years ago. Quiet. Watchful. The kind of person who flinched at loud noises.
-
-"I'm sorry," he said again. It wasn't enough.
-
-"I know." She grabbed her bag. "Finish the book, Arjun. Some of us don't get to stop fighting."
+"You can, and you will." She stood. "Finish this thing. Then we'll figure out how to make them see it."
 
 
-
-[Part VII: The Price of Belief]
-
+### Part VII: The Price of Belief
 
 That night, Arjun wrote until his vision blurred.
 
 Not the novel, that was done. He wrote in his grandfather's journal:
 
-
-[JOURNAL START]
 *Belief isn't a feeling. It's a practice.*
 
 *Every day I choose not to open the job listings. Every day I choose to write instead of numb out. Every day I choose to look at the rejection pile and sit down anyway.*
@@ -468,12 +217,9 @@ Not the novel, that was done. He wrote in his grandfather's journal:
 *I might be wrong about this book. I might be delusional. History is full of confident failures.*
 
 *But I'd rather be wrong while being fully myself than right while being a hollow copy of someone else.*
-[JOURNAL END]
 
 
-
-[Part VIII: The Letter]
-
+### Part VIII: The Letter
 
 Three weeks later, a cream-colored envelope arrived.
 
@@ -510,8 +256,6 @@ Plain white envelope. His name handwritten.
 
 Inside, a single page:
 
-
-[LETTER START]
 *I know what you did at the Mehta Tower project.*
 
 *I know about the inspection report you buried.*
@@ -519,8 +263,6 @@ Inside, a single page:
 *London should be interesting.*
 
 *V*
-[LETTER END]
-
 
 Arjun's hands went cold.
 
@@ -580,17 +322,11 @@ Two days later, Kapoor called him into his office. The report was on the desk. M
 
 Arjun had let it go.
 
-He'd told himself he wasn't responsible. He'd flagged it. The decision wasn't his.
+He'd told himself he wasn't responsible. He'd flagged it. The decision wasn't his. Legally, ethically, he was clean.
 
-That night, he'd deleted the photographs of the crack from his phone. Then he'd gone through his sent emails and deleted the original report from there too. Just in case.
+But three months later, when Mehta Tower won the National Design Award, he'd stood on that stage. He'd smiled for the photographs. He'd let them put his name on the plaque.
 
-He still didn't know why he'd done that. If he'd kept the evidence, he could have gone public sooner. Could have saved himself years of guilt.
-
-But he'd deleted it. And then he'd ordered dinner and watched a movie and gone to bed.
-
-Three months later, when Mehta Tower won the National Design Award, he'd stood on that stage. He'd smiled for the photographs. He'd let them put his name on the plaque.
-
-He'd shaken Mehta's hand. A firm grip. Mehta had complimented his tie.
+He'd shaken Mehta's hand.
 
 And every time he passed that building, he looked up at the forty-seventh floor. Waiting. Counting windows. Counting the people moving behind them.
 
@@ -607,21 +343,17 @@ Someone who signed their notes with *V*.
 Someone who would be in London.
 
 
-
-[Part IX: The Mirror]
-
+### Part IX: The Mirror
 
 That night, Arjun stood before the bathroom mirror.
 
 His hands were still shaking. He gripped the sink until they stopped.
 
-He thought about looking himself in the eye, the way his grandfather's letters always said. But he couldn't. He looked at the faucet instead. There was toothpaste crust on the handle.
-
 Four hundred people on that observation deck. Every business day. For two years.
 
-He'd flagged it. He'd done his job.
+He'd flagged it. He'd done his job. He was legally clean.
 
-He'd also deleted the evidence. He'd shaken Mehta's hand. He'd taken the bonus and bought a new couch with it. A grey couch. He still had the couch.
+But he'd also taken the bonus. Stood on the stage. Let them put his name on the plaque beside a building that might kill people.
 
 *Write for the man in the mirror*, his grandfather had said.
 
@@ -629,19 +361,9 @@ Arjun looked at that man now.
 
 "You know what you have to do."
 
-He didn't say it out loud. The words were too heavy.
+Go to London. Face whoever V was. And if facing them meant the truth about Mehta Tower came out, then so be it. He'd tell it himself before someone else could twist it.
 
-Go to London. Face whoever V was.
-
-Or: stay home. Let it blow over. Maybe V was bluffing. Maybe it would all go away.
-
-He opened his phone. Closed it. Opened it again. Looked at his reflection in the dark screen.
-
-Booked the flights.
-
-Then cancelled them.
-
-Then booked them again, with a different airline, as if that mattered.
+He picked up his phone. Booked the flights.
 
 London in six days.
 
@@ -651,13 +373,11 @@ And one of them knew his secret.
 
 
 
-[CHAPTER TWO]
-[The Other Four]
+# CHAPTER TWO
+## The Other Four
 
 
-
-[Part I: Heathrow]
-
+### Part I: Heathrow
 
 The flight landed at 6:47 AM. Arjun's mouth tasted like recycled air and bad coffee.
 
@@ -707,9 +427,7 @@ Her eyes narrowed slightly. "Should we?"
 "We should."
 
 
-
-[Part II: The Prodigy]
-
+### Part II: The Prodigy
 
 The young man's name was Ravi Anand. Twenty-one. First novel at sixteen, forty-seven rejections. Second novel at nineteen, now a finalist for the biggest literary prize in the English-speaking world.
 
@@ -734,9 +452,7 @@ He pulled out his phone and typed a note: *Ask her about the Bloomsbury flat. Se
 The Bloomsbury flat was where he and Priya had spent their first anniversary. A detail only someone close to Priya would know.
 
 
-
-[Part III: The Professor]
-
+### Part III: The Professor
 
 Dr. Nandini Iyer. Sixty-eight. Former chair of English Literature at Delhi University until something ended her career three years ago.
 
@@ -775,9 +491,7 @@ The silence had weight.
 "Well," Dr. Iyer said finally, "at least one of us has perspective."
 
 
-
-[Part IV: The First Move]
-
+### Part IV: The First Move
 
 Arjun didn't wait for dinner.
 
@@ -816,9 +530,7 @@ This was something older. Something between families.
 And he'd walked straight into the middle of it.
 
 
-
-[Part V: Dinner]
-
+### Part V: Dinner
 
 The dining room smelled of roasted lamb and old money.
 
@@ -853,9 +565,7 @@ Arjun said nothing.
 "Whatever you're looking for," Maya said, "be careful what you find. Some truths aren't worth the cost."
 
 
-
-[Part VI: The Roof]
-
+### Part VI: The Roof
 
 At 2 AM, Arjun climbed to the roof terrace.
 
@@ -906,9 +616,7 @@ She left.
 Arjun stayed on the roof, cold seeping through his jacket, thinking about boards and pieces and who was really moving them.
 
 
-
-[Part VII: The First Reading]
-
+### Part VII: The First Reading
 
 The bookshop in Bloomsbury smelled of ink and dust and something sweet, like old vanilla.
 
@@ -997,9 +705,7 @@ Then someone in the back started clapping. Slowly. Alone. It didn't spread.
 It didn't need to.
 
 
-
-[Part VIII: Virginia]
-
+### Part VIII: Virginia
 
 After the reading, Virginia Ashworth intercepted him in the hallway.
 
@@ -1040,9 +746,7 @@ She walked away, heels clicking on the old floor.
 Arjun stood in the dusty light, recalibrating everything he thought he understood.
 
 
-
-[Part IX: Maya]
-
+### Part IX: Maya
 
 He found her in the garden that night. She sat on a bench, IV port visible under her cardigan sleeve, watching the moon.
 
@@ -1095,9 +799,7 @@ Arjun stared at the letter.
 "That's what I haven't figured out yet." She took the letter back, folded it carefully. "But I think we're about to find out."
 
 
-
-[Part X: The Third Letter]
-
+### Part X: The Third Letter
 
 It was under his pillow when he returned to his room.
 
@@ -1153,13 +855,11 @@ And Arjun was starting to think every person in this house had been chosen not d
 
 
 
-[CHAPTER THREE]
-[The Game Behind the Game]
+# CHAPTER THREE
+## The Game Behind the Game
 
 
-
-[Part I: 4 AM]
-
+### Part I: 4 AM
 
 Sleep wouldn't come.
 
@@ -1196,9 +896,7 @@ Or a deliberate choice. A witness.
 The house settled around him. Somewhere, a clock chimed five.
 
 
-
-[Part II: Confrontation]
-
+### Part II: Confrontation
 
 At 6 AM, Arjun knocked on Dr. Iyer's door.
 
@@ -1231,9 +929,7 @@ She set down the chai. Her fingers found a worn spot on the bedspread, rubbed it
 She took a long drink, watching him over the rim.
 
 
-
-[Part III: Vidya, Alone]
-
+### Part III: Vidya, Alone
 
 *That same morning, Vidya sat in her room with the door locked.*
 
@@ -1291,20 +987,16 @@ She took a long drink, watching him over the rim.
 
 *She read it again, seeing it differently now. The husband wasn't a monster. He was a coward. There was a difference.*
 
-*Maybe.*
+*And cowards could change. Sometimes. If they got scared enough.*
 
-*She pulled out a pen and started making notes in the margins. Crossed things out. Wrote new lines. Crossed those out too.*
+*She pulled out a pen and started making notes in the margins.*
 
-*The book wasn't finished. She'd thought it was.*
+*The book wasn't finished. She'd thought it was, but it wasn't.*
 
-*There was another chapter to write. She didn't know what it said yet. She didn't know if the wife forgave the husband or not.*
-
-*Maybe she'd figure it out tomorrow.*
+*There was another chapter to write. The one where the wife has to decide whether broken things can be beautiful.*
 
 
-
-[Part IV: The Prodigy's Secret]
-
+### Part IV: The Prodigy's Secret
 
 While Arjun talked to Maya in the garden, Ravi Anand was conducting his own investigation.
 
@@ -1382,9 +1074,7 @@ Ravi considered lying. Decided he was too tired.
 "That happens a lot in this house." Thomas handed him a cup of tea. "Drink this. You look like you need it."
 
 
-
-[Part V: The Pattern]
-
+### Part V: The Pattern
 
 Arjun found Maya in the garden after breakfast.
 
@@ -1417,9 +1107,7 @@ Maya pulled a protein bar from her pocket, tore it open with her teeth. She chew
 "Whatever happens next." She took another bite. "You want some? Hospital diet has me eating constantly. Like a pregnant woman, except the opposite."
 
 
-
-[Part IV: The Alliance]
-
+### Part IV: The Alliance
 
 That evening, Arjun called a meeting.
 
@@ -1454,9 +1142,7 @@ Vidya was last. She'd torn the skin beside her thumbnail. A bead of blood appear
 "Fine," she said. "One week. But if you screw this up..." She didn't finish. She didn't need to.
 
 
-
-[Part V: The Revelation]
-
+### Part V: The Revelation
 
 They talked for three hours.
 
@@ -1557,9 +1243,7 @@ Dr. Iyer's face had gone pale. Her hand trembled against the armrest.
 But Arjun was already moving.
 
 
-
-[Part VI: The Dead]
-
+### Part VI: The Dead
 
 He caught Maya at the stairs.
 
@@ -1622,9 +1306,7 @@ Arjun stared at the stairs below them.
 "Exactly." Maya patted his knee with surprising gentleness. "He wanted the truth to surface. So he built an institution to make it happen."
 
 
-
-[Part VII: The Test]
-
+### Part VII: The Test
 
 The next morning, Arjun made a decision.
 
@@ -1726,9 +1408,7 @@ She stopped. Shook her head.
 *The clock struck midnight. She drank alone.*
 
 
-
-[Part VIII: The Choice]
-
+### Part VIII: The Choice
 
 That night, Arjun stood before the bathroom mirror.
 
@@ -1789,9 +1469,7 @@ This wasn't just exposure. This was demolition.
 And there was nothing he could do from London except wait.
 
 
-
-[Part IX: The Night Before]
-
+### Part IX: The Night Before
 
 The competition ceremony was tomorrow.
 
@@ -1855,13 +1533,11 @@ Not if there was no career left to win it for.
 
 
 
-[CHAPTER FOUR]
-[The Ceremony]
+# CHAPTER FOUR
+## The Ceremony
 
 
-
-[Part I: Morning]
-
+### Part I: Morning
 
 Arjun woke to silence.
 
@@ -1900,9 +1576,7 @@ He dried off. Wrapped the towel around his waist. Looked at himself in the steam
 The face didn't answer.
 
 
-
-[Part II: Breakfast]
-
+### Part II: Breakfast
 
 The dining room smelled of burnt toast and tension.
 
@@ -1965,9 +1639,7 @@ The kitchen sounds filled the silence. Pots clanking. Water running. Someone hum
 "Because tonight, one of us wins. And I want you to know that whatever happens, she heard you. For the first time in years, she actually heard you."
 
 
-
-[Part III: The Afternoon]
-
+### Part III: The Afternoon
 
 At 2 PM, Dr. Iyer knocked on Arjun's door.
 
@@ -2012,9 +1684,7 @@ Arjun studied the photograph. The two men were leaning toward each other, mid-co
 "I don't know." Dr. Iyer moved toward the door. "But for forty years, she's been living with questions. Maybe answers are a kind of mercy."
 
 
-
-[Part IV: The Call]
-
+### Part IV: The Call
 
 At 4 PM, Arjun called Nikhil Rao.
 
@@ -2095,9 +1765,7 @@ Arjun stared out the window at London's gray sky.
 He hung up.
 
 
-
-[Part V: The Dress Rehearsal]
-
+### Part V: The Dress Rehearsal
 
 At 5 PM, the finalists gathered in the residence's main hall.
 
@@ -2142,9 +1810,7 @@ Vidya joined them, her heels clicking on the marble.
 "Charming," Vidya said. But she didn't walk away.
 
 
-
-[Part VI: The Study]
-
+### Part VI: The Study
 
 *In Virginia's study, the two women faced each other.*
 
@@ -2203,9 +1869,7 @@ Vidya joined them, her heels clicking on the marble.
 *They sat in the fading light, two old women who'd spent decades as enemies, sharing a drink like strangers at a funeral.*
 
 
-
-[Part VII: The Ceremony]
-
+### Part VII: The Ceremony
 
 The car arrived at 6 PM.
 
@@ -2242,9 +1906,7 @@ Her face was different. The armor was still there, but cracks showed through. Wh
 "Whatever happens, remember: you've already done the hard part. Everything else is just decoration."
 
 
-
-[Part VIII: The Reading]
-
+### Part VIII: The Reading
 
 The audience filled the hall.
 
@@ -2297,9 +1959,7 @@ Maya squeezed his arm.
 "Good," she whispered. "Really good."
 
 
-
-[Part IX: The Winner]
-
+### Part IX: The Winner
 
 Virginia Ashworth took the stage.
 
@@ -2340,9 +2000,7 @@ He hadn't won.
 He was surprised to find he didn't mind.
 
 
-
-[Part X: After]
-
+### Part X: After
 
 The reception blurred together.
 
@@ -2379,9 +2037,7 @@ She laughed. A real one, not the sharp performances he'd seen all week.
 She walked away. Her bare feet made no sound on the marble.
 
 
-
-[Part XI: Midnight]
-
+### Part XI: Midnight
 
 The residence was quiet when Arjun returned.
 
@@ -2417,13 +2073,11 @@ He stayed on the roof until the sky began to lighten. Then he went inside, packe
 
 
 
-[CHAPTER FIVE]
-[Coming Home]
+# CHAPTER FIVE
+## Coming Home
 
 
-
-[Part I: The Flight]
-
+### Part I: The Flight
 
 The plane banked over Mumbai at sunset.
 
@@ -2450,9 +2104,7 @@ The dead man's automation had reached the safety board.
 Arjun pocketed his phone and waited for the seatbelt sign to turn off.
 
 
-
-[Part II: Meera]
-
+### Part II: Meera
 
 She was leaning against a pillar in arrivals, wearing paint-stained jeans and a t-shirt that said "I MAKE ART AND QUESTIONABLE DECISIONS."
 
@@ -2495,9 +2147,7 @@ She reached over and squeezed his hand. Brief. Warm.
 "I'm still listed as your emergency contact from architecture school." She grinned. "Surprise."
 
 
-
-[Part III: The Apartment]
-
+### Part III: The Apartment
 
 His apartment smelled like dust and old takeout containers.
 
@@ -2537,9 +2187,7 @@ He looked at his reflection in the window. A man holding a phone, about to burn 
 "I'll be there in an hour."
 
 
-
-[Part IV: The Board]
-
+### Part IV: The Board
 
 The Mumbai Building Safety Authority occupied a gray concrete building that looked like it had been designed by someone who'd never experienced joy.
 
@@ -2580,9 +2228,7 @@ He shook her hand.
 "It was the easiest thing I've ever done. I just took four years to do it."
 
 
-
-[Part V: The Call]
-
+### Part V: The Call
 
 That evening, Arjun called Kapoor.
 
@@ -2621,9 +2267,7 @@ He hung up.
 His hands were shaking. He set down the phone and waited until they stopped.
 
 
-
-[Part VI: The Inspection]
-
+### Part VI: The Inspection
 
 The inspectors arrived at Mehta Tower at 8 AM.
 
@@ -2660,9 +2304,7 @@ Arjun looked at the crack. The one he'd spotted four years ago. The one Kapoor h
 It wasn't cosmetic anymore.
 
 
-
-[Part VII: The Evacuation]
-
+### Part VII: The Evacuation
 
 By noon, Mehta Tower was being evacuated.
 
@@ -2697,9 +2339,7 @@ A long pause.
 *Fair enough. Story runs tomorrow. Good luck, Mehra.*
 
 
-
-[Part VIII: Meera's Gallery]
-
+### Part VIII: Meera's Gallery
 
 That night, Meera dragged him to her studio.
 
@@ -2738,9 +2378,7 @@ He looked at the canvas. The figure was becoming clearer now. A man emerging fro
 He stayed.
 
 
-
-[Part IX: The Article]
-
+### Part IX: The Article
 
 Nikhil Rao's article dropped at 6 AM.
 
@@ -2769,9 +2407,7 @@ The reflection didn't answer.
 But somehow, it looked less tired than it had in years.
 
 
-
-[Part X: The Aftermath]
-
+### Part X: The Aftermath
 
 The next few days blurred together.
 
@@ -2808,9 +2444,7 @@ A door. Unlocked, not open.
 *Yes*, he typed. *I'd like that.*
 
 
-
-[Part XI: The Balance]
-
+### Part XI: The Balance
 
 A week after the evacuation, the safety board released its preliminary report.
 
@@ -2874,13 +2508,11 @@ Not bad at all.
 
 
 
-[CHAPTER SIX]
-[The Fellowship]
+# CHAPTER SIX
+## The Fellowship
 
 
-
-[Part I: Departure]
-
+### Part I: Departure
 
 Six weeks later, Arjun stood at Mumbai's international airport terminal, watching the departure board flicker.
 
@@ -2913,9 +2545,7 @@ He smiled at the last one. The twenty-one-year-old prodigy, still processing his
 That might be interesting.
 
 
-
-[Part II: London]
-
+### Part II: London
 
 The fellowship flat was in Bloomsbury, three blocks from the bookshop where everything had started.
 
@@ -2942,9 +2572,7 @@ He should have felt elated. Instead, he felt something closer to terror.
 What if he had nothing left to say?
 
 
-
-[Part III: The First Week]
-
+### Part III: The First Week
 
 The fear lasted three days.
 
@@ -2979,9 +2607,7 @@ Then he started writing about Mehta Tower. Not fiction. Just the truth, as plain
 The words came slowly. But they came.
 
 
-
-[Part IV: Virginia]
-
+### Part IV: Virginia
 
 A week after his arrival, Arjun met Virginia Ashworth for tea.
 
@@ -3038,9 +2664,7 @@ She finished her tea. "I wanted to tell you in person. Because the memoir will m
 "He's seventy-one. He doesn't like waiting anymore." She smiled. "Neither do I."
 
 
-
-[Part V: The Dinner]
-
+### Part V: The Dinner
 
 The restaurant was in Mayfair. White tablecloths, quiet service, the kind of place where history got negotiated over dessert.
 
@@ -3089,9 +2713,7 @@ Arjun: *I'm sorry.*
 Ravi: *Don't be. You were right. Truth is expensive. But at least I can sleep now.*
 
 
-
-[Part VI: The Writing]
-
+### Part VI: The Writing
 
 October faded into November. The plane tree outside Arjun's window shed its leaves until nothing remained but black branches against gray sky.
 
@@ -3128,9 +2750,7 @@ He wrote about Priya:
 The pages accumulated. Slowly at first, then faster. The fear that had gripped him those first days loosened.
 
 
-
-[Part VII: Maya]
-
+### Part VII: Maya
 
 In mid-November, Virginia called with news.
 
@@ -3146,17 +2766,11 @@ Arjun sat heavily on the edge of his bed. The phone felt cold against his ear.
 
 "What?"
 
-"She said: 'Tell him I finished the book. And that I'm mad at him for making me cry at the competition. It ruined my mascara.'"
+"She said: 'The imperfect ones are the most real. Tell him I saw who he was. And I approved.'"
 
-Arjun almost laughed. Then he didn't.
+Arjun closed his eyes.
 
-"That's it?"
-
-"That's it. She wanted to say something profound, I think, but decided against it." Virginia paused. "She said profundity was a crutch for people who hadn't figured out how to just say things."
-
-Maya, sketching on a napkin while they plotted in the library. Maya, wheeling herself to the microphone despite the chair they'd provided. Maya at twenty-three, before any of this, winning her first award and promptly spending the prize money on plane tickets to places she'd never been. Her blog posts from hospital beds, complaining about the food, about her brother's terrible jokes, about the way everyone treated her like she was already gone.
-
-She'd been living right up until the end. Not preparing speeches. Not dispensing wisdom. Just living.
+Maya, sketching on a napkin while they plotted in the library. Maya, wheeling herself to the microphone despite the chair they'd provided. Maya, offering advice with the clarity that only comes from knowing time is short.
 
 "There's a memorial next month," Virginia said. "London. Her family asked if the finalists would attend. I'll send details."
 
@@ -3166,18 +2780,24 @@ He hung up.
 
 The flat was very quiet. Outside, rain began to fall.
 
-He wanted to write something. A tribute. A poem. Something that captured who she was.
+He sat at his desk and opened a new document.
 
-He opened a new document. Stared at it.
+*In Memory of Maya Chen*
 
-Nothing came.
+*The clearest eyes in every room*
 
-Some people you can't put into words. Maybe that was the point.
+*Who taught us that truth isn't cruel*
+
+*It's just the opposite of hiding*
+
+He wrote until the words ran out. Then he saved the file and stared at the gray sky.
+
+Dying people have excellent instincts about character.
+
+He hoped she'd been right about his.
 
 
-
-[Part VIII: The Memorial]
-
+### Part VIII: The Memorial
 
 The memorial was held at the same arts center where the competition had been announced.
 
@@ -3253,9 +2873,7 @@ He would try to remember that.
 He would try to live it.
 
 
-
-[Part IX: December]
-
+### Part IX: December
 
 The year turned toward its end.
 
@@ -3322,14 +2940,9 @@ Something quieter. Peace, maybe.
 The first he'd known in a very long time.
 
 
+# Chapter 7: The Return
 
-[CHAPTER SEVEN]
-[The Return]
-
-
-
-[Part I: January]
-
+### Part I: January
 
 The year turned.
 
@@ -3385,9 +2998,7 @@ They ate in comfortable silence. Two people who had traded their comfortable lie
 "No." Virginia smiled. "But we're going to keep talking until we do."
 
 
-
-[Part II: Repercussions]
-
+### Part II: Repercussions
 
 In March, the Mehta Tower case went to trial.
 
@@ -3578,27 +3189,17 @@ He stepped down. His legs felt like they belonged to someone else.
 
 After the testimony, Deshpande found him in the corridor.
 
-They stood near a water fountain that dripped. Neither of them spoke for a long time.
+"I thought I'd hate you," Deshpande said. His voice was calm, tired. "When I found out you'd known for years. When I understood that you watched me fight that battle alone while you had the evidence that could have ended it."
 
-"I thought I'd hate you," Deshpande said finally.
+"I'm sorry."
 
-Arjun nodded. He didn't say he was sorry. The word felt too small.
+"I know you are." Deshpande sat on a bench, gestured for Arjun to join him. "I've been angry for a long time. At Kapoor. At the system. At everyone who looked away." He studied Arjun's face. "But anger is exhausting. And you came back. You testified. That counts for something."
 
-Deshpande didn't sit. Didn't gesture for Arjun to join him. Just stood there, hands in his pockets, looking at the floor.
+"Does it count for enough?"
 
-"I'm not going to tell you it's okay," Deshpande said. "Because it isn't."
+"I don't know." Deshpande stood, extended his hand. "But it's a start."
 
-"I know."
-
-"But." Deshpande exhaled. Rubbed his face. "I'm tired. Four years of being tired." He looked at Arjun. "I don't have the energy to hate you too."
-
-That was it. No forgiveness. No reconciliation. Just exhaustion.
-
-Deshpande extended his hand. Arjun shook it. His palm was sweating. Deshpande probably noticed. Neither of them mentioned it.
-
-Outside, the sun was too bright. Arjun walked three blocks in the wrong direction before realizing it. Then he sat on a bench near a tea stall and watched pigeons fight over a samosa wrapper for twenty minutes.
-
-He didn't know what he felt. Relief seemed wrong. So did regret. There wasn't a word for the specific thing in his chest.
+Arjun shook it. A handshake between two men who had failed in different ways. Who were trying, imperfectly, to make it right.
 
 
 The verdict came in April.
@@ -3607,7 +3208,7 @@ Kapoor: five years for criminal negligence. Three of his deputies: various sente
 
 The headlines called it a landmark case. Justice for Mumbai's working class. A turning point in corporate accountability.
 
-Arjun read the news in his London flat. He'd bought a cake to celebrate. Then felt strange celebrating someone else's imprisonment. The cake sat uneaten on the counter for two days before he threw it away.
+Arjun read the news in his London flat, feeling something complicated. Relief. Grief. Guilt that it had taken so long. Gratitude that it had happened at all.
 
 His phone buzzed. Meera.
 
@@ -3626,9 +3227,7 @@ Meera's response was immediate: *That's better than someone who helped start a f
 True. Small comfort, but true.
 
 
-
-[Part III: The Manuscript]
-
+### Part III: The Manuscript
 
 Arjun finished his book in May.
 
@@ -3678,9 +3277,7 @@ Arjun had known it would be. He'd written it anyway.
 Arjun agreed. He just didn't know how to do it.
 
 
-
-[Part IV: The Conversation]
-
+### Part IV: The Conversation
 
 He called Priya on a Saturday afternoon. 
 
@@ -3719,9 +3316,7 @@ Another silence. He could hear traffic through her window. The sounds of Mumbai,
 He emailed her the PDF that night. Then he waited.
 
 
-
-[Part V: Priya]
-
+### Part V: Priya
 
 *Four days.*
 
@@ -3905,14 +3500,9 @@ They talked for two more hours. About the book. About their marriage. About what
 "Good." He could hear her smile. "That's a start."
 
 
+# Chapter 8: The Publication
 
-[CHAPTER EIGHT]
-[The Publication]
-
-
-
-[Part I: Before]
-
+### Part I: Before
 
 The book came out in September.
 
@@ -3964,9 +3554,7 @@ The host recovered. "That's very honest of you."
 "I'm saying we're all imperfect. We all fail. The question isn't whether you've made mistakes. The question is what you do after."
 
 
-
-[Part II: The Response]
-
+### Part II: The Response
 
 The reviews came in waves.
 
@@ -4110,9 +3698,7 @@ She turned back to the city lights. "I'm writing something new, by the way. Some
 "Maybe." The smile widened. "Or maybe I just ran out of things to be angry about."
 
 
-
-[Part III: The Return]
-
+### Part III: The Return
 
 The fellowship ended in October.
 
@@ -4163,25 +3749,16 @@ The platform announcement crackled. His train to Heathrow.
 
 He boarded the train. Watched London slip away through the window. The city that had broken him apart and helped him rebuild.
 
-Something. He didn't know what to call it yet.
+Something new. Something true.
 
-The rain started outside the train window. Grey sky, grey buildings, grey water streaking the glass.
+The architecture of his silence, finally demolished.
 
-He'd call Priya when he landed. Or maybe he wouldn't. They'd talked twice since the book came out. Awkward conversations. Pauses. Things neither of them said.
-
-He didn't know if there was anything to rebuild. Maybe some things stay broken.
-
-But he was going back. That had to count for something.
+And in its place: the beginnings of something he might, someday, call home.
 
 
+# Chapter 9: The Man in the Mirror
 
-[CHAPTER NINE]
-[The Man in the Mirror]
-
-
-
-[Part I: Spring]
-
+### Part I: Spring
 
 Six months later.
 
@@ -4195,36 +3772,30 @@ His grandfather's notebook sat open on his desk, the leather worn soft from year
 
 *"Write for the man in the mirror. He's the only audience that matters."*
 
-He still wasn't sure what that meant. But he was writing anyway.
+The man in the mirror had changed.
+
+The man in the mirror could meet his own eyes now.
 
 
 The Mehta Tower was being demolished.
 
-Arjun went to watch on a Tuesday morning. He didn't know why. Some part of him wanted to see it fall. Another part wanted to leave before it started.
+Arjun went to watch on a Tuesday morning. A small crowd had gathered. Workers, journalists, a few residents of nearby buildings. Deshpande was there, standing apart, his face unreadable.
 
-A small crowd had gathered. Workers, journalists, a food vendor selling chai to anyone who'd buy it. Deshpande was there, standing apart. He looked older.
+"Strange," Deshpande said when Arjun joined him. "Watching them tear down something you worked so hard to fix."
 
-"Arjun."
+"I didn't fix it. I just... stopped pretending it wasn't broken."
 
-"Deshpande."
+"Same thing, maybe."
 
-They stood without talking. Arjun bought chai. It was too sweet.
+The first wrecking ball swung. Steel screamed. Dust billowed.
 
-The first wrecking ball swung. Steel screamed. Dust billowed. A woman near them started recording on her phone.
-
-Arjun watched the building begin to collapse. The forty-seventh floor, where he'd stood with his flashlight years ago. The offices where four hundred people had worked.
-
-He didn't feel what he expected to feel. Mostly he felt hot. And tired.
+Arjun watched the building he'd known for years begin to collapse. The forty-seventh floor, where he'd stood with his flashlight, seeing the crack that had started everything. The offices where four hundred people had worked, too close to disaster.
 
 "What now?" Deshpande asked.
 
-"I don't know. Go home, I guess."
+"Now we build something better."
 
-"That's it?"
-
-Arjun drank the rest of his chai. It was cold now.
-
-"That's it."
+Deshpande nodded. Didn't ask for details. Just stood beside him, two men watching the evidence of their shared failure crumble into rubble.
 
 "The new law passed," Deshpande said after a while. "The one requiring independent structural audits. Third-party inspections. Whistleblower protections."
 
@@ -4234,14 +3805,10 @@ Arjun drank the rest of his chai. It was cold now.
 
 "I didn't do it for the recognition."
 
-That wasn't entirely true. He'd checked the news articles. He'd screenshot the ones that mentioned him by name.
-
-"I know," Deshpande said. He probably didn't believe it either.
+"I know." Deshpande smiled slightly. "That's why you deserve it."
 
 
-
-[Part II: The Call]
-
+### Part II: The Call
 
 The call came on a monsoon evening.
 
@@ -4255,9 +3822,7 @@ Priya.
 
 "I like the rain." A pause. "Can I come up?"
 
-She arrived twenty minutes later, her umbrella useless against the downpour. Her shoes squelched on his floor. He handed her a towel, made tea, waited.
-
-She looked around the apartment. Didn't comment. But he saw her notice the stack of unwashed dishes.
+She arrived twenty minutes later, her umbrella useless against the downpour. He handed her a towel, made tea, waited.
 
 "I've been thinking," she said, wrapping her hands around the warm cup. "About what you wrote. About what we talked about. About everything."
 
@@ -4265,37 +3830,21 @@ She looked around the apartment. Didn't comment. But he saw her notice the stack
 
 "And I'm ready to try."
 
-His heart did something. Not stopped. More like tripped. "Try what?"
+His heart stopped. "Try what?"
 
 "Whatever this is." She gestured between them. "Not what we had before. That's gone. We can't get it back, and I don't think we should." She met his eyes. "But something new. Something honest. Something where we actually tell each other the truth."
 
 "Priya..."
 
-"I know it's complicated. I know we hurt each other." She set down her cup. "And honestly? Part of why I'm here is that my therapist suggested it. She thought I needed closure, one way or another."
+"I know it's complicated. I know we hurt each other. I know there are no guarantees." She set down her cup. "But I've spent the last two years being angry, and then sad, and then resigned. And now I've read your book, and we've been talking, and I realize... I miss you. Not the version of you that I married. But the version of you that you're becoming."
 
-"Therapy?"
+"I don't know who that version is yet."
 
-"For two years now. Turns out being left by someone who couldn't tell you what was wrong leaves some damage." She said it flatly, not accusingly. Just fact. "I've been working through it. The anger, the trust issues. The way I flinch when someone gets quiet."
+"Neither do I." She smiled. "Maybe we can figure it out together."
 
-Arjun didn't know what to say.
+Rain pounded the windows. Thunder rolled in the distance. Arjun looked at this woman who had known him at his worst, who had left when he couldn't be honest, who was sitting in his apartment offering him something he didn't deserve.
 
-"I've also been working on other things," she continued. "Got promoted. My own team now. Forty people reporting to me." She smiled, but it didn't quite reach her eyes. "I'm good at my job. It's the only part of my life I understand."
-
-"That's... congratulations."
-
-"It's a thing. Whether it's a good thing..." She shrugged. "My therapist has opinions."
-
-They sat without talking. The rain kept falling.
-
-"Why are you really here?" Arjun asked.
-
-"Because I miss you. And I hate that I miss you. And I'm tired of hating it." She looked at him. "I don't know if this is a fresh start or just a slow way of saying goodbye. I genuinely don't know."
-
-Rain pounded the windows. Thunder rolled in the distance. Arjun looked at this woman who had known him at his worst, who had left when he couldn't be honest, who was sitting in his apartment in wet clothes asking for something he wasn't sure he could give.
-
-He wanted to say yes. He also wanted to run.
-
-"I'll probably disappoint you again," he said. It came out harsher than he meant it.
+"I'll probably disappoint you again," he said.
 
 "Probably."
 
@@ -4303,26 +3852,24 @@ He wanted to say yes. He also wanted to run.
 
 "I know." She reached for his hand. "So will I."
 
-Arjun looked at their joined hands. Didn't pull away. Didn't move closer either.
+"Then why are you here?"
 
-"The night I read the last page of your book," she said, "I called my sister. And she asked me what I was feeling, and I told her I was feeling something I hadn't felt in years."
+She thought about it. Really thought.
+
+"Because the night I read the last page of your book, I called my sister. And she asked me what I was feeling, and I told her I was feeling something I hadn't felt in years."
 
 "What was that?"
 
-"Hope." Her fingers intertwined with his. "Hope that people can change. Hope that honesty is possible. Hope that two broken people might be able to build something." She paused. "Or break it again. I don't know."
+"Hope." Her fingers intertwined with his. "Hope that people can change. Hope that honesty is possible. Hope that two broken people might be able to build something that isn't broken."
 
-Her rings were gone. The tan line from his engagement ring had faded too.
+Arjun looked at their joined hands. Felt the warmth of her skin. The reality of her presence.
 
 "I'd like to try," he said.
 
-"Good." She leaned forward and kissed him. Brief. Her lips were chapped. "That's all I'm asking."
-
-Outside, the rain kept falling. Neither of them moved to turn on more lights.
+"Good." She leaned forward and kissed him, soft, brief, a question more than an answer. "That's all I'm asking."
 
 
-
-[Part III: The Man]
-
+### Part III: The Man
 
 The invitation arrived in June.
 
@@ -4330,13 +3877,13 @@ WordCraft again. But this time, Arjun wasn't a finalist. He was being invited to
 
 He accepted.
 
-London in summer. The same theatre where he'd sat in the audience two years ago. Now he stood on stage, looking out at twenty faces. He'd forgotten his notes in the hotel room.
+London in summer. The same theatre where he'd sat in the audience two years ago, convinced he didn't belong. Now he stood on stage, looking out at twenty faces full of ambition and fear and hope.
 
-"You're here because you wrote something," he began. Then paused. That wasn't how the speech started. "Something true. Don't lose that."
+"You're here because you wrote something true," he began. "Don't lose that."
 
-Someone coughed in the third row.
+He paused. Remembered Virginia's speech, two years ago.
 
-"Here's what no one tells you. The truth doesn't set you free. Not right away. First it costs you." He was talking too fast. He made himself slow down. "It costs you relationships. It costs you sleep."
+"Here's what no one tells you. The truth doesn't set you free. Not right away. First it costs you. It costs you relationships. It costs you sleep. It costs you the comfortable lies you've been telling yourself for years."
 
 The faces watched him.
 
@@ -4348,73 +3895,49 @@ He gripped the podium.
 
 He stepped back from the podium.
 
-"Write something true. Write something that scares you." He couldn't remember the last line. "That's it. Thank you."
+"Write something true. Write something that scares you. Then publish it anyway."
 
-Applause. Polite. Someone dropped a water bottle.
+Applause filled the theatre. Not thunderous, but real.
 
 
-After the ceremony, Virginia found him in the green room. He was eating a stale sandwich from the catering table.
+After the ceremony, Virginia found him in the green room.
 
-"Well," she said.
+"Good speech," she said.
 
-"Don't."
+"I learned from the best."
 
-"I wasn't going to say anything." She paused. "Your microphone cut out during the middle part. I don't think anyone noticed."
-
-"Great."
-
-She sat down heavily. She looked tired. Not just tired. Something else.
+She laughed, that dry laugh he'd come to know. "You learned from a complicated old woman who's still figuring things out."
 
 "How's the memoir doing?"
 
-"Shortlisted for two prizes. Banned from three bookstores." She was quiet for a moment. "Vikram's daughter found me on Facebook. Sent me a message. Thirty years of nothing, and now she wants to know why I left."
-
-"What did you tell her?"
-
-"The truth. That I was selfish. That I wanted my career more than I wanted to stay." Virginia looked at her hands. "She said she already knew that. She just wanted to hear me say it."
-
-Arjun didn't know what to say.
-
-"Nandini calls me every week now," Virginia continued. "To argue about the parts I got wrong. We have dinner together on Tuesdays. She corrects my memory. I correct hers."
+"Shortlisted for two prizes. Banned from three bookstores. Nandini calls me every week now to argue about the parts I got wrong." Virginia's expression softened. "We have dinner together on Tuesdays. She corrects my memory. I correct hers. It's oddly civil."
 
 "That sounds like progress."
 
-"It is. Forty years of resentment, and now we're two old women comparing notes." She shook her head. "I don't know if I'd call it friendship. But it's something." She shrugged. "We're too old to keep hating each other. It takes energy."
+"It is. Forty years of resentment, and now we're two old women comparing notes." She shook her head. "I don't know if I'd call it friendship. But it's something. Something I didn't expect."
 
-She handed him an envelope. Inside, a photograph. Five people at a dinner table, two years ago. Arjun, Maya, Ravi, Vidya, Fatima. He didn't remember anyone taking it.
+She handed him an envelope. Inside, a photograph. Five people at a dinner table, two years ago. Arjun, Maya, Ravi, Vidya, Fatima. All of them uncertain. All of them hopeful.
 
-"I found it in my files," Virginia said.
+"I found it in my files," Virginia said. "I thought you should have it."
 
-Arjun looked at the faces. Maya, gone now. Ravi, who still hadn't replied to his last email. Vidya, who sent a single line last month: *hope you're well*. Fatima, who he'd lost touch with entirely.
+Arjun looked at the faces. Maya, gone now. The others, scattered across the world, each carrying their own complicated truths.
 
-"She was right, you know," Arjun said. "Maya."
+"She was right, you know," Arjun said. "Maya. About the imperfect ones being the most real."
 
-"About what?"
+"She usually was."
 
-He couldn't remember exactly what she'd said. Something about imperfection. It had felt important at the time.
-
-"Never mind."
-
-They stood without talking. Outside, a siren passed.
+They stood in comfortable silence. Two people who had confessed their failures to the world and survived.
 
 "What's next for you?" Virginia asked.
 
 Arjun thought about it. About Priya, waiting in Mumbai. About the novel he was writing. About the life he was learning to live.
 
-"I'm going home," he said.
-
-Virginia nodded. She was already thinking about something else. Her phone had buzzed twice while they were talking. The daughter, probably. The past, demanding attention.
-
-"Good luck," she said. But she was looking at her phone.
-
-Arjun left her there. Two people going back to their separate messes.
+"I'm going home," he said. "To build something better."
 
 Virginia nodded. Didn't ask for details. Just squeezed his shoulder and walked away.
 
 
-
-[Part IV: Home]
-
+### Part IV: Home
 
 Mumbai at midnight.
 
@@ -4422,91 +3945,69 @@ Arjun sat on his balcony, watching the city lights shimmer in the humid air. Pri
 
 His grandfather's notebook lay open in his lap. He ran his fingers over the familiar handwriting.
 
-*"The test of a man is not whether he falls, but whether he rises. Not whether he lies, but whether he—"*
+*"The test of a man is not whether he falls, but whether he rises. Not whether he lies, but whether he confesses. Not whether he is perfect, but whether he is honest about his imperfections."*
 
-Arjun closed the notebook. His grandfather's handwriting had gotten shaky toward the end. Some words were illegible. He'd filled in the gaps himself, for years, pretending he knew what came next.
+Arjun closed the notebook.
 
-Maybe he didn't.
+He thought about the boy he'd been, twenty years ago. Full of ambition and certainty. Convinced that success meant never showing weakness. Never admitting doubt.
 
-He thought about the boy he'd been. Full of ambition and certainty. God, he'd been insufferable.
-
-He thought about the man he'd been three years ago. Drowning in secrets. Watching his marriage collapse while he ordered takeout and pretended everything was fine.
+He thought about the man he'd been, three years ago. Drowning in secrets. Unable to speak. Watching his marriage collapse while he hid behind comfortable lies.
 
 He thought about the man he was now.
 
-Still imperfect. Still frightened sometimes. Still checking his phone at 2 AM to see if anyone had discovered something new to hate him for.
+Still imperfect. Still frightened sometimes. Still unsure.
 
-Honest, maybe. On good days.
+But honest. Finally, honest.
 
-The city hummed below. A car horn. Someone yelling about parking. A dog that wouldn't stop barking. The neighbor's AC unit rattling like it had been doing for three months.
+The city hummed below. A car horn. A door slamming. A child's laugh, inexplicably, at this late hour.
 
-Arjun went inside. Climbed into bed beside Priya. She'd taken his pillow again. She always did.
+Arjun went inside. Climbed into bed beside Priya. Felt her shift toward him in her sleep, her hand finding his.
 
-He lay on his back, staring at the ceiling fan. It wobbled slightly. He'd been meaning to fix it.
-
-"You're awake," she murmured.
+"You're thinking too loud," she murmured.
 
 "Sorry."
 
-"What?"
+"What were you thinking about?"
 
-"Nothing. Go back to sleep."
+He kissed her forehead.
 
-She didn't ask what he was thinking about. He was grateful. He didn't know what he'd have said.
+"The future."
 
-He closed his eyes.
+"What about it?"
 
-Tomorrow he had to call his father. They'd been talking again, but it was awkward. Silences that stretched too long. His father asking about cricket scores when neither of them cared about cricket.
+"That it exists." He pulled her close. "That we get to be part of it."
 
-And next week, Meera's gallery opening. She'd asked him to say a few words. He'd said yes, then immediately regretted it.
+She smiled without opening her eyes.
 
-And his new book. Stuck on chapter four. The protagonist kept sounding like him, which was the problem.
+"Go to sleep, Arjun."
+
+"Yes."
+
+He closed his eyes. Felt the weight of her beside him. The weight of his own history, his own failures, his own hard-won truths.
 
 The man in the mirror had changed.
 
-Or maybe he was just tired.
+The man in the mirror could meet his own eyes now.
 
-He'd figure it out tomorrow. Figure out what it meant to be good when you'd spent so many years being otherwise. Figure out how to be honest without making it a performance.
+And tomorrow, he would wake up and try again. Try to be better. Try to be honest. Try to build something that wasn't rotten underneath.
 
 Not because he was ideal.
 
-But because he didn't know what else to do.
+But because he finally knew what that word meant.
 
-The ceiling fan wobbled.
+Not perfection.
 
-Priya shifted, took more of the blanket.
+Not arrogance.
 
-He let her.
+Not the absence of weakness.
 
+Just this: knowing who you are. The good and the bad. The failures and the victories. The lies you've told and the truths you've finally spoken.
 
+And getting up anyway.
 
----
+Every day.
 
-
-                           ACKNOWLEDGMENTS
-
-
-
-
-I would like to thank my family for their constant support and belief in me.
-
-I am grateful to everyone who encouraged me to keep writing and complete this book.
-
-And finally! thank you to every reader who chooses to spend their time with this story.
+And trying again.
 
 
-
----
-
-
-                          ABOUT THE AUTHOR
-
-
-Kunal Meena is a writer from India. THE IDEAL MAN is his first novel. He writes about architecture, silence, and the courage it takes to tell the truth. He can be reached at kunalmeena1311@gmail.com.
-
-
----
-
-                              THE END
-
----
+**THE END**
